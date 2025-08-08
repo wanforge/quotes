@@ -37,6 +37,7 @@
 - 🎺 Perjalanan ribuan mil dimulai dengan satu langkah
 
 ## S
+- 🌛 So is cheerfulness, or a good temper, the more it is spent, the more remains.
 - 🌠 Subdue your appetites, my dears, and you've conquered human nature.
 
 - 🎶 Setting an example is not the main means of influencing another, it is the only means.
