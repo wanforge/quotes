@@ -45,5 +45,6 @@
 - 🎨 To make no mistakes is not in the power of man; but from their errors and mistakes the wise and good learn wisdom for the future.
 
 ## W
+- 🌻 Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values.
 
 - ⭐ Wisdom has never made a bigot, but learning has.
