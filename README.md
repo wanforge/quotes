@@ -9,3 +9,7 @@
 ### K
 
 - 🌏 Kebahagiaan datang ketika kita berhenti mengeluh
+
+### P
+
+- 🎺 Perjalanan ribuan mil dimulai dengan satu langkah
