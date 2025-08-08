@@ -50,5 +50,6 @@
 
 ## W
 - 🌻 Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values.
+- 🧧 When you see a man of worth, think of how you may emulate him. When you see one who is unworthy, examine yourself.
 
 - ⭐ Wisdom has never made a bigot, but learning has.
