@@ -31,6 +31,7 @@
 - 🎺 Perjalanan ribuan mil dimulai dengan satu langkah
 
 ## S
+- 🌠 Subdue your appetites, my dears, and you've conquered human nature.
 
 - 🎶 Setting an example is not the main means of influencing another, it is the only means.
 - 🥁 Sustaining true friendship is a lot more challenging than we give it credit for.
