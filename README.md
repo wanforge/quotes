@@ -6,6 +6,7 @@
 - 🎺 Bumi ini cukup untuk tujuh generasi, tetapi tidak untuk tujuh orang serakah
 
 ## C
+- 🔭 Commitment is an act, not a word.
 
 - 📢 Character cannot be developed in ease and quiet. Only through experience of trial and suffering can the soul be strengthened, vision cleared, ambition inspired, and success achieved.
 
