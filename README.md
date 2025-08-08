@@ -1,8 +1,8 @@
 # Quotes
 
 ## B
-- 🌏 Beginning today, treat everyone you meet as if they were going to be dead by midnight. Extend to them all the care, kindness and understanding you can muster, and do it with no thought of any reward. Your life will never be the same again.
 
+- 🌏 Beginning today, treat everyone you meet as if they were going to be dead by midnight. Extend to them all the care, kindness and understanding you can muster, and do it with no thought of any reward. Your life will never be the same again.
 - 🎺 Bumi ini cukup untuk tujuh generasi, tetapi tidak untuk tujuh orang serakah
 
 ## C
@@ -27,15 +27,15 @@
 - 🎺 Perjalanan ribuan mil dimulai dengan satu langkah
 
 ## S
-- 🥁 Sustaining true friendship is a lot more challenging than we give it credit for.
 
 - 🎶 Setting an example is not the main means of influencing another, it is the only means.
+- 🥁 Sustaining true friendship is a lot more challenging than we give it credit for.
 
 ## T
-- 🎨 To make no mistakes is not in the power of man; but from their errors and mistakes the wise and good learn wisdom for the future.
-- 🥉 Three things cannot be long hidden: the sun, the moon, and the truth.
 
 - 🖌️ The heart has eyes which the brain knows nothing of.
+- 🥉 Three things cannot be long hidden: the sun, the moon, and the truth.
+- 🎨 To make no mistakes is not in the power of man; but from their errors and mistakes the wise and good learn wisdom for the future.
 
 ## W
 
