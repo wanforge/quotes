@@ -24,6 +24,7 @@
 - 🌰 He who hath many friends hath none.
 
 ## I
+- 🔭 If we did the things we are capable of, we would astound ourselves.
 
 - 🪘 In the middle of every difficulty lies opportunity.
 
