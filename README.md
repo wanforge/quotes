@@ -4,6 +4,10 @@
 
 - 🎺 Bumi ini cukup untuk tujuh generasi, tetapi tidak untuk tujuh orang serakah
 
+## I
+
+- 🪘 In the middle of every difficulty lies opportunity.
+
 ## K
 
 - 🧿 Kebahagiaan datang ketika kita berhenti mengeluh
