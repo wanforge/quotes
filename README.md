@@ -8,6 +8,7 @@
 
 ### K
 - 🧿 Kebahagiaan datang ketika kita berhenti mengeluh
+- ⭐ Kesederhanaan adalah kecanggihan tertinggi
 
 - 🌏 Kebahagiaan datang ketika kita berhenti mengeluh
 
