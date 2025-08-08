@@ -32,6 +32,7 @@
 - 🥁 Sustaining true friendship is a lot more challenging than we give it credit for.
 
 ## T
+- 🌠 The ultimate promise of technology is to make us master of a world that we command by the push of a button.
 
 - 🖌️ The heart has eyes which the brain knows nothing of.
 - 🥉 Three things cannot be long hidden: the sun, the moon, and the truth.
