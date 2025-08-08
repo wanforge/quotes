@@ -16,3 +16,7 @@
 ## P
 
 - 🎺 Perjalanan ribuan mil dimulai dengan satu langkah
+
+## T
+
+- 🖌️ The heart has eyes which the brain knows nothing of.
