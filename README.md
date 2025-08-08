@@ -20,3 +20,7 @@
 ## T
 
 - 🖌️ The heart has eyes which the brain knows nothing of.
+
+## W
+
+- ⭐ Wisdom has never made a bigot, but learning has.
