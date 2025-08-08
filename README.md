@@ -18,6 +18,10 @@
 
 - 🎺 Perjalanan ribuan mil dimulai dengan satu langkah
 
+## S
+
+- 🎶 Setting an example is not the main means of influencing another, it is the only means.
+
 ## T
 - 🎨 To make no mistakes is not in the power of man; but from their errors and mistakes the wise and good learn wisdom for the future.
 
