@@ -19,6 +19,7 @@
 - 🎺 Perjalanan ribuan mil dimulai dengan satu langkah
 
 ## T
+- 🎨 To make no mistakes is not in the power of man; but from their errors and mistakes the wise and good learn wisdom for the future.
 
 - 🖌️ The heart has eyes which the brain knows nothing of.
 
