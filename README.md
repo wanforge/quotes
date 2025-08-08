@@ -26,6 +26,10 @@
 
 - 🎹 Let go of your attachment to being right, and suddenly your mind is more open. You're able to benefit from the unique viewpoints of others, without being crippled by your own judgement.
 
+## O
+
+- 🌈 One who gains strength by overcoming obstacles possesses the only strength which can overcome adversity.
+
 ## P
 
 - 🎺 Perjalanan ribuan mil dimulai dengan satu langkah
