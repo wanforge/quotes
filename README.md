@@ -28,6 +28,7 @@
 
 ## T
 - 🎨 To make no mistakes is not in the power of man; but from their errors and mistakes the wise and good learn wisdom for the future.
+- 🥉 Three things cannot be long hidden: the sun, the moon, and the truth.
 
 - 🖌️ The heart has eyes which the brain knows nothing of.
 
