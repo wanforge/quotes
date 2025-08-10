@@ -31,6 +31,7 @@
 - 🪘 In the middle of every difficulty lies opportunity.
 
 ## K
+- 🌱 Kesempatan tidak datang dua kali, raih saat ini juga
 
 - 🧿 Kebahagiaan datang ketika kita berhenti mengeluh
 - ⭐ Kesederhanaan adalah kecanggihan tertinggi
