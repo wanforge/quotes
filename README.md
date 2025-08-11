@@ -41,6 +41,10 @@
 
 - 🎹 Let go of your attachment to being right, and suddenly your mind is more open. You're able to benefit from the unique viewpoints of others, without being crippled by your own judgement.
 
+## M
+
+- 🎙️ Mimpi tidak akan terwujud dengan sendirinya
+
 ## N
 
 - 🎺 No party has a monopoly on wisdom. No democracy works without compromise.
