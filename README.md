@@ -1,5 +1,9 @@
 # Quotes
 
+## A
+
+- 📍 Always seek out the seed of triumph in every adversity.
+
 ## B
 - 🎶 Belajar adalah harta karun yang akan mengikuti pemiliknya ke mana pun
 
