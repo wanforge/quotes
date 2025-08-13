@@ -66,6 +66,7 @@
 
 ## T
 - 🌠 The ultimate promise of technology is to make us master of a world that we command by the push of a button.
+- 🦿 There is no need for temples, no need for complicated philosophies. My brain and my heart are my temples; my philosophy is kindness.
 - 🦿 To avoid criticism, do nothing, say nothing, be nothing.
 
 - 🖌️ The heart has eyes which the brain knows nothing of.
