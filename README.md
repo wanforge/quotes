@@ -21,6 +21,7 @@
 - 🌿 Friendship is held to be the severest test of character. It is easy, we think, to be loyal to a family and clan, whose blood is in your own veins.
 
 ## G
+- 🌈 Go put your creed into the deed. Nor speak with double tongue.
 - 🌿 Genuine sincerity opens people's hearts, while manipulation causes them to close.
 
 - 🔭 Great are they who see that spiritual is stronger than any material force, that thoughts rule the world.
