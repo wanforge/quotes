@@ -16,6 +16,7 @@
 - 📢 Character cannot be developed in ease and quiet. Only through experience of trial and suffering can the soul be strengthened, vision cleared, ambition inspired, and success achieved.
 
 ## F
+- 🌛 Failure will never overtake me if my determination to succeed is strong enough.
 - 📍 Friendship is one mind in two bodies.
 
 - 🌿 Friendship is held to be the severest test of character. It is easy, we think, to be loyal to a family and clan, whose blood is in your own veins.
