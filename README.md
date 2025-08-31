@@ -6,6 +6,7 @@
 
 ## B
 - 🎶 Belajar adalah harta karun yang akan mengikuti pemiliknya ke mana pun
+- 🪕 Bad times have a scientific value. These are occasions a good learner would not miss.
 
 - 🌏 Beginning today, treat everyone you meet as if they were going to be dead by midnight. Extend to them all the care, kindness and understanding you can muster, and do it with no thought of any reward. Your life will never be the same again.
 - 🎺 Bumi ini cukup untuk tujuh generasi, tetapi tidak untuk tujuh orang serakah
