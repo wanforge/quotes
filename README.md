@@ -23,6 +23,7 @@
 
 ## G
 - 🌈 Go put your creed into the deed. Nor speak with double tongue.
+- 🌱 Gratitude is not only the greatest of virtues, but the parent of all the others.
 - 🌿 Genuine sincerity opens people's hearts, while manipulation causes them to close.
 
 - 🔭 Great are they who see that spiritual is stronger than any material force, that thoughts rule the world.
