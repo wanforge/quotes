@@ -1,6 +1,7 @@
 # Quotes
 
 ## A
+- ⚡ A good hockey player plays where the puck is. A great hockey player plays where the puck is going to be.
 
 - 📍 Always seek out the seed of triumph in every adversity.
 
