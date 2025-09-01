@@ -37,6 +37,7 @@
 
 ## I
 - 🍄 It is fatal to enter any war without the will to win it.
+- 📝 If you are bitter, you are like a dry leaf that you can just squash, and you can get blown away by the wind. There is much more wisdom in forgiveness.
 - 🔭 If we did the things we are capable of, we would astound ourselves.
 
 - 🪘 In the middle of every difficulty lies opportunity.
