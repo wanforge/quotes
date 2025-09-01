@@ -35,6 +35,7 @@
 - 🌰 He who hath many friends hath none.
 
 ## I
+- 🍄 It is fatal to enter any war without the will to win it.
 - 🔭 If we did the things we are capable of, we would astound ourselves.
 
 - 🪘 In the middle of every difficulty lies opportunity.
