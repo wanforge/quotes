@@ -19,6 +19,7 @@
 
 ## F
 - 🌛 Failure will never overtake me if my determination to succeed is strong enough.
+- 🌱 Freedom is not worth having if it does not connote freedom to err.
 - 📍 Friendship is one mind in two bodies.
 
 - 🌿 Friendship is held to be the severest test of character. It is easy, we think, to be loyal to a family and clan, whose blood is in your own veins.
