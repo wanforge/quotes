@@ -91,6 +91,7 @@
 - 🎨 To make no mistakes is not in the power of man; but from their errors and mistakes the wise and good learn wisdom for the future.
 
 ## W
+- 🌱 Where all think alike, no one thinks very much.
 - 🌻 Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values.
 - 🔖 When one tugs at a single thing in nature, he finds it attached to the rest of the world.
 - 🥁 We have two ears and one mouth so that we can listen twice as much as we speak.
