@@ -99,6 +99,7 @@
 - 🌱 Where all think alike, no one thinks very much.
 - 🌻 Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values.
 - 🔖 When one tugs at a single thing in nature, he finds it attached to the rest of the world.
+- 🔥 We are either progressing or retrograding all the while. There is no such thing as remaining stationary in this life.
 - 🥁 We have two ears and one mouth so that we can listen twice as much as we speak.
 - 🥁 We live in a society bloated with data yet starved for wisdom. We're connected 24/7, yet anxiety, fear, depression and loneliness are at an all-time high. We must course-correct.
 - 🧧 When you see a man of worth, think of how you may emulate him. When you see one who is unworthy, examine yourself.
