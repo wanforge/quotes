@@ -83,6 +83,7 @@
 - 🌠 The ultimate promise of technology is to make us master of a world that we command by the push of a button.
 - 🔔 This is the whole point of technology. It creates an appetite for immortality on the one hand. It threatens universal extinction on the other. Technology is lust removed from nature.
 - 🔔 Those that know, do. Those that understand, teach.
+- 🕹️ Technology is nothing. What's important is that you have a faith in people, that they're basically good and smart, and if you give them tools, they'll do wonderful things with them.
 - 🦿 There is no need for temples, no need for complicated philosophies. My brain and my heart are my temples; my philosophy is kindness.
 - 🦿 To avoid criticism, do nothing, say nothing, be nothing.
 
