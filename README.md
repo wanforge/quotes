@@ -97,6 +97,7 @@
 - 🦿 There is no need for temples, no need for complicated philosophies. My brain and my heart are my temples; my philosophy is kindness.
 - 🦿 To avoid criticism, do nothing, say nothing, be nothing.
 - 🧠 There are two ways of spreading light: to be the candle or the mirror that reflects it.
+- 🧬 There is a difference between happiness and wisdom: he that thinks himself the happiest man is really so; but he that thinks himself the wisest is generally the greatest fool.
 
 - 🖌️ The heart has eyes which the brain knows nothing of.
 - 🥉 Three things cannot be long hidden: the sun, the moon, and the truth.
