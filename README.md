@@ -92,6 +92,7 @@
 - 🕹️ Technology is nothing. What's important is that you have a faith in people, that they're basically good and smart, and if you give them tools, they'll do wonderful things with them.
 - 🦿 There is no need for temples, no need for complicated philosophies. My brain and my heart are my temples; my philosophy is kindness.
 - 🦿 To avoid criticism, do nothing, say nothing, be nothing.
+- 🧠 There are two ways of spreading light: to be the candle or the mirror that reflects it.
 
 - 🖌️ The heart has eyes which the brain knows nothing of.
 - 🥉 Three things cannot be long hidden: the sun, the moon, and the truth.
