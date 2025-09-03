@@ -92,6 +92,7 @@
 - 🔔 This is the whole point of technology. It creates an appetite for immortality on the one hand. It threatens universal extinction on the other. Technology is lust removed from nature.
 - 🔔 Those that know, do. Those that understand, teach.
 - 🔖 The only way to tell the truth is to speak with kindness. Only the words of a loving man can be heard.
+- 🔥 To support mother and father, to cherish partner and children, and to be engaged in peaceful occupation — this is the greatest blessing.
 - 🕹️ Technology is nothing. What's important is that you have a faith in people, that they're basically good and smart, and if you give them tools, they'll do wonderful things with them.
 - 🦿 There is no need for temples, no need for complicated philosophies. My brain and my heart are my temples; my philosophy is kindness.
 - 🦿 To avoid criticism, do nothing, say nothing, be nothing.
