@@ -54,6 +54,7 @@
 - ⭐ Kesederhanaan adalah kecanggihan tertinggi
 
 ## L
+- 🌈 Love is blind; friendship closes its eyes.
 - 🔭 Let us sacrifice our today so that our children can have a better tomorrow.
 
 - 🎹 Let go of your attachment to being right, and suddenly your mind is more open. You're able to benefit from the unique viewpoints of others, without being crippled by your own judgement.
