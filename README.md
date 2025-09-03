@@ -39,6 +39,7 @@
 ## I
 - 🌝 It is impossible to love and to be wise.
 - 🍄 It is fatal to enter any war without the will to win it.
+- 🎆 If you do not change direction, you may end up where you are heading.
 - 💎 I do not know the American gentleman, god forgive me for putting two such words together.
 - 📝 If you are bitter, you are like a dry leaf that you can just squash, and you can get blown away by the wind. There is much more wisdom in forgiveness.
 - 🔭 If we did the things we are capable of, we would astound ourselves.
