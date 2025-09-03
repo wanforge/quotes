@@ -97,6 +97,10 @@
 - 🥉 Three things cannot be long hidden: the sun, the moon, and the truth.
 - 🎨 To make no mistakes is not in the power of man; but from their errors and mistakes the wise and good learn wisdom for the future.
 
+## V
+
+- 🔭 Victory belongs to the most persevering.
+
 ## W
 - 🌱 Where all think alike, no one thinks very much.
 - 🌻 Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values.
