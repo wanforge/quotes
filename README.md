@@ -50,6 +50,7 @@
 ## K
 - ⭐ Kegagalan adalah guru terbaik
 - 🌱 Kesempatan tidak datang dua kali, raih saat ini juga
+- 📢 Knowledge is knowing that a tomato is a fruit. Wisdom is knowing not to put it in a fruit salad.
 
 - 🧿 Kebahagiaan datang ketika kita berhenti mengeluh
 - ⭐ Kesederhanaan adalah kecanggihan tertinggi
