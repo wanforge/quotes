@@ -75,6 +75,7 @@
 - 🌈 One who gains strength by overcoming obstacles possesses the only strength which can overcome adversity.
 
 ## P
+- 🏮 Programs must be written for people to read, and only incidentally for machines to execute.
 
 - 🎺 Perjalanan ribuan mil dimulai dengan satu langkah
 
