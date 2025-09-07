@@ -75,6 +75,7 @@
 - 🎺 No party has a monopoly on wisdom. No democracy works without compromise.
 
 ## O
+- 🌿 Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time.
 
 - 🌈 One who gains strength by overcoming obstacles possesses the only strength which can overcome adversity.
 
