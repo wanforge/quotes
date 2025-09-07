@@ -47,6 +47,7 @@
 - 💎 I do not know the American gentleman, god forgive me for putting two such words together.
 - 📝 If you are bitter, you are like a dry leaf that you can just squash, and you can get blown away by the wind. There is much more wisdom in forgiveness.
 - 🔭 If we did the things we are capable of, we would astound ourselves.
+- 🪕 Independence is happiness.
 
 - 🪘 In the middle of every difficulty lies opportunity.
 
