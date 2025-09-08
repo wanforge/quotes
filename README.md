@@ -89,6 +89,10 @@
 
 - 🎺 Perjalanan ribuan mil dimulai dengan satu langkah
 
+## Q
+
+- 🏅 Quality means doing it right when no one is looking.
+
 ## S
 - 🌛 So is cheerfulness, or a good temper, the more it is spent, the more remains.
 - 🌠 Subdue your appetites, my dears, and you've conquered human nature.
