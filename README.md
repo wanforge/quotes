@@ -22,6 +22,7 @@
 
 ## F
 - 🌛 Failure will never overtake me if my determination to succeed is strong enough.
+- 🌱 Faith in oneself is the best and safest course.
 - 🌱 Freedom is not worth having if it does not connote freedom to err.
 - 📍 Friendship is one mind in two bodies.
 
