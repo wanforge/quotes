@@ -9,6 +9,7 @@
 
 ## B
 - 🎶 Belajar adalah harta karun yang akan mengikuti pemiliknya ke mana pun
+- 🕹️ But man is not made for defeat. A man can be destroyed but not defeated.
 - 🧠 Better be ignorant of a matter than half know it.
 - 🪕 Bad times have a scientific value. These are occasions a good learner would not miss.
 
