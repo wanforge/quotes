@@ -3,6 +3,7 @@
 ## A
 - ⚡ A good hockey player plays where the puck is. A great hockey player plays where the puck is going to be.
 - 🌱 A prudent question is one half of wisdom.
+- 📯 A goal without a plan is just a wish.
 
 - 📍 Always seek out the seed of triumph in every adversity.
 
