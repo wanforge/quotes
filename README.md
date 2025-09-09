@@ -138,3 +138,7 @@
 - 🧧 When you see a man of worth, think of how you may emulate him. When you see one who is unworthy, examine yourself.
 
 - ⭐ Wisdom has never made a bigot, but learning has.
+
+## Y
+
+- 🎊 You can always count on Americans to do the right thing - after they've tried everything else.
