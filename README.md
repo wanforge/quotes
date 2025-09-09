@@ -106,6 +106,7 @@
 - ☀️ The right way is not always the popular and easy way. Standing for right when it is unpopular is a true test of moral character.
 - ⚡ The will to win, the desire to succeed, the urge to reach your full potential... these are the keys that will unlock the door to personal excellence.
 - ⚡ The winds and waves are always on the side of the ablest navigators.
+- ⚡ To be what we are, and to become what we are capable of becoming, is the only end of life.
 - 🌠 The ultimate promise of technology is to make us master of a world that we command by the push of a button.
 - 🌿 There is no fear for one whose mind is not filled with desires.
 - 🎼 Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose.
