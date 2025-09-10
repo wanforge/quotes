@@ -25,6 +25,7 @@
 - 🌛 Failure will never overtake me if my determination to succeed is strong enough.
 - 🌱 Faith in oneself is the best and safest course.
 - 🌱 Freedom is not worth having if it does not connote freedom to err.
+- 🎼 Friendship with oneself is all important, because without it one cannot be friends with anyone else in the world.
 - 📍 Friendship is one mind in two bodies.
 
 - 🌿 Friendship is held to be the severest test of character. It is easy, we think, to be loyal to a family and clan, whose blood is in your own veins.
