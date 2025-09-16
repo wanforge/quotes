@@ -52,6 +52,7 @@
 - 🌰 He who hath many friends hath none.
 
 ## I
+- ☀️ It's easier to resist at the beginning than at the end.
 - 🌝 It is impossible to love and to be wise.
 - 🌞 If you want a thing done well, do it yourself.
 - 🌿 If we could learn to like ourselves, even a little, maybe our cruelties and angers might melt away.
