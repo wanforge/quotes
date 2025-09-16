@@ -132,6 +132,7 @@
 - 🌿 There is no fear for one whose mind is not filled with desires.
 - 🎼 Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose.
 - 📜 There is nothing permanent except change.
+- 📝 The greatest minds are capable of the greatest vices as well as of the greatest virtues.
 - 🔔 This is the whole point of technology. It creates an appetite for immortality on the one hand. It threatens universal extinction on the other. Technology is lust removed from nature.
 - 🔔 Those that know, do. Those that understand, teach.
 - 🔖 The only way to tell the truth is to speak with kindness. Only the words of a loving man can be heard.
