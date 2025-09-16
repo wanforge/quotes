@@ -6,6 +6,7 @@
 - 🍃 All children are artists. The problem is how to remain an artist once he grows up.
 - 🎈 A quarrel between friends, when made up, adds a new tie to friendship.
 - 📯 A goal without a plan is just a wish.
+- 🥇 Action is the foundational key to all success.
 
 - 📍 Always seek out the seed of triumph in every adversity.
 
