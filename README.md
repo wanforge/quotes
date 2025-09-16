@@ -3,6 +3,7 @@
 ## A
 - ⚡ A good hockey player plays where the puck is. A great hockey player plays where the puck is going to be.
 - 🌱 A prudent question is one half of wisdom.
+- 🍃 All children are artists. The problem is how to remain an artist once he grows up.
 - 🎈 A quarrel between friends, when made up, adds a new tie to friendship.
 - 📯 A goal without a plan is just a wish.
 
