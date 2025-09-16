@@ -23,6 +23,10 @@
 
 - 📢 Character cannot be developed in ease and quiet. Only through experience of trial and suffering can the soul be strengthened, vision cleared, ambition inspired, and success achieved.
 
+## D
+
+- ✨ Democracy's premise rests on the notion that the collective wisdom of the majority will prove right more often than it's wrong; that given sufficient opportunity in the pursuit of happiness, your population will develop its talents, its intellect, its better judgment; that over time its capacity for discernment and self-correction will be enlarged.
+
 ## F
 - 🌛 Failure will never overtake me if my determination to succeed is strong enough.
 - 🌱 Faith in oneself is the best and safest course.
