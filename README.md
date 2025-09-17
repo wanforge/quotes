@@ -107,6 +107,7 @@
 
 ## P
 - 🏮 Programs must be written for people to read, and only incidentally for machines to execute.
+- 🔔 Pitching is the art of instilling fear.
 - 🔬 Prejudice is a burden that confuses the past, threatens the future and renders the present inaccessible.
 
 - 🎺 Perjalanan ribuan mil dimulai dengan satu langkah
