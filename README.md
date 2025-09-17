@@ -133,6 +133,7 @@
 - ⚡ The will to win, the desire to succeed, the urge to reach your full potential... these are the keys that will unlock the door to personal excellence.
 - ⚡ The winds and waves are always on the side of the ablest navigators.
 - ⚡ To be what we are, and to become what we are capable of becoming, is the only end of life.
+- 🌏 There is only one corner of the universe you can be certain of improving, and that's your own self.
 - 🌠 The ultimate promise of technology is to make us master of a world that we command by the push of a button.
 - 🌿 There is no fear for one whose mind is not filled with desires.
 - 🎼 Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose.
