@@ -116,6 +116,10 @@
 
 - 🏅 Quality means doing it right when no one is looking.
 
+## R
+
+- 🎸 Results! Why, man, I have gotten a lot of results. I know several thousand things that won't work.
+
 ## S
 - 🌛 So is cheerfulness, or a good temper, the more it is spent, the more remains.
 - 🌠 Subdue your appetites, my dears, and you've conquered human nature.
