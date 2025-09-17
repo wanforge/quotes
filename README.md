@@ -172,5 +172,6 @@
 - ⭐ Wisdom has never made a bigot, but learning has.
 
 ## Y
+- 🎸 You win the victory when you yield to friends.
 
 - 🎊 You can always count on Americans to do the right thing - after they've tried everything else.
