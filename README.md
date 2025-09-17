@@ -166,6 +166,7 @@
 - 🚀 We are made wise not by the recollection of our past, but by the responsibility for our future.
 - 🥁 We have two ears and one mouth so that we can listen twice as much as we speak.
 - 🥁 We live in a society bloated with data yet starved for wisdom. We're connected 24/7, yet anxiety, fear, depression and loneliness are at an all-time high. We must course-correct.
+- 🥁 When one door of happiness closes, another opens; but often we look so long at the closed door that we do not see the one which has been opened for us.
 - 🧧 When you see a man of worth, think of how you may emulate him. When you see one who is unworthy, examine yourself.
 
 - ⭐ Wisdom has never made a bigot, but learning has.
