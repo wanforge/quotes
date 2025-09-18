@@ -82,6 +82,7 @@
 ## L
 - 🌈 Love is blind; friendship closes its eyes.
 - 🌠 Love is rarer than genius itself. And friendship is rarer than love.
+- 🌸 Love is the only force capable of transforming an enemy into a friend.
 - 🏅 Learning is the beginning of wealth. Learning is the beginning of health. Learning is the beginning of spirituality. Searching and learning is where the miracle process all begins.
 - 🔭 Let us sacrifice our today so that our children can have a better tomorrow.
 
