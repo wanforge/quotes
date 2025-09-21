@@ -110,6 +110,7 @@
 - 🎺 No party has a monopoly on wisdom. No democracy works without compromise.
 
 ## O
+- ⭐ Opportunity often comes disguised in the form of misfortune, or temporary defeat.
 - 🌠 Once you label me you negate me.
 - 🌿 Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time.
 - 🎶 Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road.
