@@ -69,6 +69,7 @@
 - 🎯 I have just three things to teach: simplicity, patience, compassion. These three are your greatest treasures.
 - 🎵 I am of the opinion that my life belongs to the community, and as long as I live it is my privilege to do for it whatever I can.
 - 💎 I do not know the American gentleman, god forgive me for putting two such words together.
+- 📜 It is the nature of the wise to resist pleasures, but the foolish to be a slave to them.
 - 📝 If you are bitter, you are like a dry leaf that you can just squash, and you can get blown away by the wind. There is much more wisdom in forgiveness.
 - 🔭 If we did the things we are capable of, we would astound ourselves.
 - 🦾 It's not what you look at that matters, it's what you see.
