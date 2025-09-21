@@ -90,6 +90,7 @@
 - 🎹 Let go of your attachment to being right, and suddenly your mind is more open. You're able to benefit from the unique viewpoints of others, without being crippled by your own judgement.
 
 ## M
+- 📱 Meditation brings wisdom, lack of meditation leaves ignorance. Know well what leads you forward and what holds you back and choose the path that leads to wisdom.
 - 🔋 My best friend is the one who brings out the best in me.
 - 🔭 Man is not sum of what he has already, but rather the sum of what he does not yet have, of what he could have.
 - 🖱️ Men in general judge more from appearances than from reality. All men have eyes, but few have the gift of penetration.
