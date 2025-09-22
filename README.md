@@ -68,6 +68,7 @@
 - 🍃 I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on man unless they act.
 - 🍄 It is fatal to enter any war without the will to win it.
 - 🎆 If you do not change direction, you may end up where you are heading.
+- 🎎 I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder.
 - 🎯 I have just three things to teach: simplicity, patience, compassion. These three are your greatest treasures.
 - 🎵 I am of the opinion that my life belongs to the community, and as long as I live it is my privilege to do for it whatever I can.
 - 💎 I do not know the American gentleman, god forgive me for putting two such words together.
