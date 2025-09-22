@@ -141,6 +141,7 @@
 - 🌛 So is cheerfulness, or a good temper, the more it is spent, the more remains.
 - 🌠 Subdue your appetites, my dears, and you've conquered human nature.
 - 💡 Success is where preparation and opportunity meet.
+- 🦿 Spread love everywhere you go. Let no one ever come to you without leaving happier.
 
 - 🎶 Setting an example is not the main means of influencing another, it is the only means.
 - 🥁 Sustaining true friendship is a lot more challenging than we give it credit for.
