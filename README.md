@@ -40,6 +40,7 @@
 - 🌝 Friendship is like money, easier made than kept.
 - 🌱 Faith in oneself is the best and safest course.
 - 🌱 Freedom is not worth having if it does not connote freedom to err.
+- 🎧 Feeling and longing are the motive forces behind all human endeavor and human creations.
 - 🎼 Friendship with oneself is all important, because without it one cannot be friends with anyone else in the world.
 - 📍 Friendship is one mind in two bodies.
 - 📯 Friendship with oneself is all important because without it one cannot be friends with anybody else in the world.
