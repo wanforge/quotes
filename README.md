@@ -7,6 +7,7 @@
 - 🎈 A quarrel between friends, when made up, adds a new tie to friendship.
 - 📯 A goal without a plan is just a wish.
 - 🥇 Action is the foundational key to all success.
+- 🦾 Anything you really want, you can attain, if you really go after it.
 
 - 📍 Always seek out the seed of triumph in every adversity.
 
