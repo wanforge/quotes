@@ -13,6 +13,7 @@
 
 ## B
 - 🎶 Belajar adalah harta karun yang akan mengikuti pemiliknya ke mana pun
+- 📍 Baseball is the only field of endeavor where a man can succeed three times out of ten and be considered a good performer.
 - 🕹️ But man is not made for defeat. A man can be destroyed but not defeated.
 - 🧠 Better be ignorant of a matter than half know it.
 - 🧪 Beware of false knowledge; it is more dangerous than ignorance.
