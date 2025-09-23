@@ -77,6 +77,7 @@
 - 📜 It is the nature of the wise to resist pleasures, but the foolish to be a slave to them.
 - 📝 If you are bitter, you are like a dry leaf that you can just squash, and you can get blown away by the wind. There is much more wisdom in forgiveness.
 - 🔭 If we did the things we are capable of, we would astound ourselves.
+- 🕹️ If you only have a hammer, you tend to see every problem as a nail.
 - 🦋 It is the mark of an educated mind to be able to entertain a thought without accepting it.
 - 🦾 It's not what you look at that matters, it's what you see.
 - 🧧 I destroy my enemies when I make them my friends.
