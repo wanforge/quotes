@@ -65,6 +65,7 @@
 
 ## I
 - ☀️ It's easier to resist at the beginning than at the end.
+- 🌝 I'm a great believer in luck and I find the harder I work, the more I have of it.
 - 🌝 It is impossible to love and to be wise.
 - 🌞 If you want a thing done well, do it yourself.
 - 🌻 In all things of nature there is something of the marvelous.
