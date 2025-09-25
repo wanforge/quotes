@@ -38,6 +38,7 @@
 - 🍁 Efficiency is doing things right; effectiveness is doing the right things.
 
 ## F
+- 🌈 Friendship improves happiness and abates misery, by the doubling of our joy and the dividing of our grief.
 - 🌛 Failure will never overtake me if my determination to succeed is strong enough.
 - 🌝 Friendship is like money, easier made than kept.
 - 🌱 Faith in oneself is the best and safest course.
