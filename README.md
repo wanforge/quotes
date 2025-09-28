@@ -128,6 +128,7 @@
 - 🌠 Once you label me you negate me.
 - 🌿 Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time.
 - 🎶 Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road.
+- 📡 One must be fond of people and trust them if one is not to make a mess of life.
 
 - 🌈 One who gains strength by overcoming obstacles possesses the only strength which can overcome adversity.
 
