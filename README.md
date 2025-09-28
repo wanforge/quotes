@@ -8,6 +8,7 @@
 - 📯 A goal without a plan is just a wish.
 - 🥇 Action is the foundational key to all success.
 - 🦾 Anything you really want, you can attain, if you really go after it.
+- 🧧 A lot of times people look at the negative side of what they feel they can't do. I always look on the positive side of what I can do.
 
 - 📍 Always seek out the seed of triumph in every adversity.
 
