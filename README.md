@@ -77,6 +77,7 @@
 - 🎎 I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder.
 - 🎯 I have just three things to teach: simplicity, patience, compassion. These three are your greatest treasures.
 - 🎵 I am of the opinion that my life belongs to the community, and as long as I live it is my privilege to do for it whatever I can.
+- 🎷 If you were to offer a thirsty man all wisdom, you would not please him more than if you gave him a drink.
 - 💎 I do not know the American gentleman, god forgive me for putting two such words together.
 - 💧 Imagination is more important than knowledge...
 - 📜 It is the nature of the wise to resist pleasures, but the foolish to be a slave to them.
