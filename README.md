@@ -195,6 +195,7 @@
 - 🌻 Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values.
 - 🍃 We are wiser than we know.
 - 🎆 We must not say every mistake is a foolish one.
+- 🎧 Without freedom of thought, there can be no such thing as wisdom - and no such thing as public liberty without freedom of speech.
 - 🎸 Wherever a man may happen to turn, whatever a man may undertake, he will always end up by returning to the path which nature has marked out for him.
 - 🔖 When one tugs at a single thing in nature, he finds it attached to the rest of the world.
 - 🔥 We are either progressing or retrograding all the while. There is no such thing as remaining stationary in this life.
