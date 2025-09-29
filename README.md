@@ -205,6 +205,7 @@
 - 🥁 We live in a society bloated with data yet starved for wisdom. We're connected 24/7, yet anxiety, fear, depression and loneliness are at an all-time high. We must course-correct.
 - 🥁 When one door of happiness closes, another opens; but often we look so long at the closed door that we do not see the one which has been opened for us.
 - 🧧 When you see a man of worth, think of how you may emulate him. When you see one who is unworthy, examine yourself.
+- 🧬 We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre.
 
 - ⭐ Wisdom has never made a bigot, but learning has.
 
