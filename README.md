@@ -169,6 +169,7 @@
 - ⚡ To be what we are, and to become what we are capable of becoming, is the only end of life.
 - 🌈 The real danger is not that computers will begin to think like men, but that men will begin to think like computers.
 - 🌏 There is only one corner of the universe you can be certain of improving, and that's your own self.
+- 🌝 There is not one big cosmic meaning for all, there is only the meaning we each give to our life.
 - 🌠 The ultimate promise of technology is to make us master of a world that we command by the push of a button.
 - 🌿 There is no fear for one whose mind is not filled with desires.
 - 🎼 Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose.
