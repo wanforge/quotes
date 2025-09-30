@@ -181,6 +181,7 @@
 - 🔥 To support mother and father, to cherish partner and children, and to be engaged in peaceful occupation — this is the greatest blessing.
 - 🕹️ Technology is nothing. What's important is that you have a faith in people, that they're basically good and smart, and if you give them tools, they'll do wonderful things with them.
 - 🥉 The strong bond of friendship is not always a balanced equation; friendship is not always about giving and taking in equal shares. Instead, friendship is grounded in a feeling that you know exactly who will be there for you when you need something, no matter what or when.
+- 🦾 Those who dream by day are cognizant of many things which escape those who dream only by night.
 - 🦿 There is no need for temples, no need for complicated philosophies. My brain and my heart are my temples; my philosophy is kindness.
 - 🦿 To avoid criticism, do nothing, say nothing, be nothing.
 - 🧠 There are two ways of spreading light: to be the candle or the mirror that reflects it.
