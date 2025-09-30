@@ -6,6 +6,7 @@
 - 🌱 A prudent question is one half of wisdom.
 - 🍃 All children are artists. The problem is how to remain an artist once he grows up.
 - 🎈 A quarrel between friends, when made up, adds a new tie to friendship.
+- 🏮 All great men are gifted with intuition. They know without reasoning or analysis, what they need to know.
 - 📯 A goal without a plan is just a wish.
 - 🥇 Action is the foundational key to all success.
 - 🦾 Anything you really want, you can attain, if you really go after it.
