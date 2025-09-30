@@ -2,6 +2,7 @@
 
 ## A
 - ⚡ A good hockey player plays where the puck is. A great hockey player plays where the puck is going to be.
+- 🌠 All our dreams can come true, if we have the courage to pursue them.
 - 🌱 A prudent question is one half of wisdom.
 - 🍃 All children are artists. The problem is how to remain an artist once he grows up.
 - 🎈 A quarrel between friends, when made up, adds a new tie to friendship.
