@@ -123,6 +123,7 @@
 
 ## N
 - 🌸 Nothing is softer or more flexible than water, yet nothing can resist it.
+- 🥁 Nothing in life is to be feared. It is only to be understood.
 
 - 🎺 No party has a monopoly on wisdom. No democracy works without compromise.
 
