@@ -93,6 +93,7 @@
 - 🕹️ It is only with the heart that one can see rightly, what is essential is invisible to the eye.
 - 🦋 It is the mark of an educated mind to be able to entertain a thought without accepting it.
 - 🦾 It's not what you look at that matters, it's what you see.
+- 🦿 It is difficult to achieve a spirit of genuine cooperation as long as people remain indifferent to the feelings and happiness of others.
 - 🧧 I destroy my enemies when I make them my friends.
 - 🧿 In the sweetness of friendship let there be laughter and sharing of pleasures. For in the dew of little things the heart finds its morning and is refreshed.
 - 🪕 Independence is happiness.
