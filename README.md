@@ -90,6 +90,7 @@
 - 🔭 If we did the things we are capable of, we would astound ourselves.
 - 🔮 It takes courage to grow up and become who you really are.
 - 🕹️ If you only have a hammer, you tend to see every problem as a nail.
+- 🕹️ It is only with the heart that one can see rightly, what is essential is invisible to the eye.
 - 🦋 It is the mark of an educated mind to be able to entertain a thought without accepting it.
 - 🦾 It's not what you look at that matters, it's what you see.
 - 🧧 I destroy my enemies when I make them my friends.
