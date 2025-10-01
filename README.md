@@ -142,6 +142,7 @@
 
 ## P
 - 🌏 Parents can only give good advice or put them on the right paths, but the final forming of a person's character lies in their own hands.
+- 🌛 Problems are only opportunities with thorns on them.
 - 🏮 Programs must be written for people to read, and only incidentally for machines to execute.
 - 🔔 Pitching is the art of instilling fear.
 - 🔬 Prejudice is a burden that confuses the past, threatens the future and renders the present inaccessible.
