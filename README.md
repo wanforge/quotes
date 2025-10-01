@@ -113,6 +113,7 @@
 - 🌸 Love is the only force capable of transforming an enemy into a friend.
 - 🏅 Learning is the beginning of wealth. Learning is the beginning of health. Learning is the beginning of spirituality. Searching and learning is where the miracle process all begins.
 - 🔭 Let us sacrifice our today so that our children can have a better tomorrow.
+- 🥈 Life a culmination of the past, an awareness of the present, an indication of the future beyond knowledge, the quality that gives a touch of divinity to matter.
 
 - 🎹 Let go of your attachment to being right, and suddenly your mind is more open. You're able to benefit from the unique viewpoints of others, without being crippled by your own judgement.
 
