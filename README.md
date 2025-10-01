@@ -205,6 +205,7 @@
 - 🔭 Victory belongs to the most persevering.
 
 ## W
+- ☀️ We the people are the rightful masters of both Congress and the courts, not to overthrow the Constitution but to overthrow the men who pervert the Constitution.
 - 🌱 Where all think alike, no one thinks very much.
 - 🌻 Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values.
 - 🍃 We are wiser than we know.
