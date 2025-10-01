@@ -162,6 +162,7 @@
 - 🌛 So is cheerfulness, or a good temper, the more it is spent, the more remains.
 - 🌠 Subdue your appetites, my dears, and you've conquered human nature.
 - 💡 Success is where preparation and opportunity meet.
+- 💻 Success in business requires training and discipline and hard work. But if you're not frightened by these things, the opportunities are just as great today as they ever were.
 - 🦿 Spread love everywhere you go. Let no one ever come to you without leaving happier.
 
 - 🎶 Setting an example is not the main means of influencing another, it is the only means.
