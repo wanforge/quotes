@@ -186,6 +186,7 @@
 - 🌠 The ultimate promise of technology is to make us master of a world that we command by the push of a button.
 - 🌿 There is no fear for one whose mind is not filled with desires.
 - 🎼 Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose.
+- 🏆 Truth, and goodness, and beauty are but different faces of the same all.
 - 📜 There is nothing permanent except change.
 - 📝 The greatest minds are capable of the greatest vices as well as of the greatest virtues.
 - 📝 The problem with Google is you have 360 degrees of omnidirectional information on a linear basis, but the algorithms for irony and ambiguity are not there. And those are the algorithms of wisdom.
