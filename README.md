@@ -193,6 +193,7 @@
 - 🔔 Those that know, do. Those that understand, teach.
 - 🔖 The only way to tell the truth is to speak with kindness. Only the words of a loving man can be heard.
 - 🔥 To support mother and father, to cherish partner and children, and to be engaged in peaceful occupation — this is the greatest blessing.
+- 🔬 There are only two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.
 - 🕹️ Technology is nothing. What's important is that you have a faith in people, that they're basically good and smart, and if you give them tools, they'll do wonderful things with them.
 - 🥉 The strong bond of friendship is not always a balanced equation; friendship is not always about giving and taking in equal shares. Instead, friendship is grounded in a feeling that you know exactly who will be there for you when you need something, no matter what or when.
 - 🦾 Those who dream by day are cognizant of many things which escape those who dream only by night.
