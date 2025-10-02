@@ -64,6 +64,7 @@
 
 ## H
 - 🦋 Happiness is found in doing, not merely possessing.
+- 🪘 Happiness does not come from doing easy work but from the afterglow of satisfaction that comes after the achievement of a difficult task that demanded our best.
 
 - 🌰 He who hath many friends hath none.
 
