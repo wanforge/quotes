@@ -8,6 +8,7 @@
 - 🎈 A quarrel between friends, when made up, adds a new tie to friendship.
 - 🏮 All great men are gifted with intuition. They know without reasoning or analysis, what they need to know.
 - 📯 A goal without a plan is just a wish.
+- 🖥️ A friend to all is a friend to none.
 - 🥇 Action is the foundational key to all success.
 - 🦾 Anything you really want, you can attain, if you really go after it.
 - 🧧 A lot of times people look at the negative side of what they feel they can't do. I always look on the positive side of what I can do.
