@@ -86,6 +86,7 @@
 - 🎷 If you were to offer a thirsty man all wisdom, you would not please him more than if you gave him a drink.
 - 💎 I do not know the American gentleman, god forgive me for putting two such words together.
 - 💧 Imagination is more important than knowledge...
+- 📜 It is impossible to escape the impression that people commonly use false standards of measurement — that they seek power, success and wealth for themselves and admire them in others, and that they underestimate what is of true value in life.
 - 📜 It is the nature of the wise to resist pleasures, but the foolish to be a slave to them.
 - 📝 If you are bitter, you are like a dry leaf that you can just squash, and you can get blown away by the wind. There is much more wisdom in forgiveness.
 - 📯 I don't turn to greeting cards for wisdom and advice, but they are a fine reflection of the general drift of the culture.
