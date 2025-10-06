@@ -205,6 +205,7 @@
 - 🦾 Those who dream by day are cognizant of many things which escape those who dream only by night.
 - 🦿 There is no need for temples, no need for complicated philosophies. My brain and my heart are my temples; my philosophy is kindness.
 - 🦿 To avoid criticism, do nothing, say nothing, be nothing.
+- 🧠 The noblest worship is to make yourself as good and as just as you can.
 - 🧠 There are two ways of spreading light: to be the candle or the mirror that reflects it.
 - 🧧 The truest wisdom is a resolute determination.
 - 🧬 There is a difference between happiness and wisdom: he that thinks himself the happiest man is really so; but he that thinks himself the wisest is generally the greatest fool.
