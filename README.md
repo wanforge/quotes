@@ -124,6 +124,7 @@
 - 🎹 Let go of your attachment to being right, and suddenly your mind is more open. You're able to benefit from the unique viewpoints of others, without being crippled by your own judgement.
 
 ## M
+- 🎤 Music is a higher revelation than all wisdom and philosophy.
 - 📌 Men are disturbed not by things, but by the view which they take of them.
 - 📱 Meditation brings wisdom, lack of meditation leaves ignorance. Know well what leads you forward and what holds you back and choose the path that leads to wisdom.
 - 🔋 My best friend is the one who brings out the best in me.
