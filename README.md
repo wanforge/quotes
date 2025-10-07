@@ -210,6 +210,7 @@
 - 🧠 There are two ways of spreading light: to be the candle or the mirror that reflects it.
 - 🧧 The truest wisdom is a resolute determination.
 - 🧬 There is a difference between happiness and wisdom: he that thinks himself the happiest man is really so; but he that thinks himself the wisest is generally the greatest fool.
+- 🪘 Technology made large populations possible; large populations now make technology indispensable.
 
 - 🖌️ The heart has eyes which the brain knows nothing of.
 - 🥉 Three things cannot be long hidden: the sun, the moon, and the truth.
