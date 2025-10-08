@@ -7,6 +7,7 @@
 - 🍀 A poem begins in delight and ends in wisdom.
 - 🍃 All children are artists. The problem is how to remain an artist once he grows up.
 - 🎈 A quarrel between friends, when made up, adds a new tie to friendship.
+- 🎹 Avoid having your ego so close to your position that when your position falls, your ego goes with it.
 - 🏮 All great men are gifted with intuition. They know without reasoning or analysis, what they need to know.
 - 📯 A goal without a plan is just a wish.
 - 🖥️ A friend to all is a friend to none.
