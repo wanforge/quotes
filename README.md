@@ -142,6 +142,7 @@
 
 ## O
 - ⭐ Opportunity often comes disguised in the form of misfortune, or temporary defeat.
+- 🌊 One of the most beautiful qualities of true friendship is to understand and to be understood.
 - 🌛 Once you choose hope, anything's possible.
 - 🌠 Once you label me you negate me.
 - 🌿 Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time.
