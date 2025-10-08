@@ -180,6 +180,7 @@
 
 ## T
 - ☀️ The right way is not always the popular and easy way. Standing for right when it is unpopular is a true test of moral character.
+- ☀️ To succeed, we must first believe that we can.
 - ⚡ The will to win, the desire to succeed, the urge to reach your full potential... these are the keys that will unlock the door to personal excellence.
 - ⚡ The winds and waves are always on the side of the ablest navigators.
 - ⚡ To be what we are, and to become what we are capable of becoming, is the only end of life.
