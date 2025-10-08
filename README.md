@@ -102,6 +102,7 @@
 - 🦾 It's not what you look at that matters, it's what you see.
 - 🦿 It is difficult to achieve a spirit of genuine cooperation as long as people remain indifferent to the feelings and happiness of others.
 - 🧧 I destroy my enemies when I make them my friends.
+- 🧩 Important principles may, and must, be inflexible.
 - 🧬 It is common sense to take a method and try it. If it fails, admit it frankly and try another. But above all, try something.
 - 🧿 In the sweetness of friendship let there be laughter and sharing of pleasures. For in the dew of little things the heart finds its morning and is refreshed.
 - 🪕 Independence is happiness.
