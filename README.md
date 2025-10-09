@@ -95,6 +95,7 @@
 - 📜 It is the nature of the wise to resist pleasures, but the foolish to be a slave to them.
 - 📝 If you are bitter, you are like a dry leaf that you can just squash, and you can get blown away by the wind. There is much more wisdom in forgiveness.
 - 📯 I don't turn to greeting cards for wisdom and advice, but they are a fine reflection of the general drift of the culture.
+- 🔬 In friendship as well as love, ignorance very often contributes more to our happiness than knowledge.
 - 🔭 If we did the things we are capable of, we would astound ourselves.
 - 🔮 It takes courage to grow up and become who you really are.
 - 🕹️ If you only have a hammer, you tend to see every problem as a nail.
