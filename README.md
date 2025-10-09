@@ -52,6 +52,7 @@
 - 🌱 Freedom is not worth having if it does not connote freedom to err.
 - 🎧 Feeling and longing are the motive forces behind all human endeavor and human creations.
 - 🎼 Friendship with oneself is all important, because without it one cannot be friends with anyone else in the world.
+- 💎 Focusing your life solely on making a buck shows a poverty of ambition. It asks too little of yourself. And it will leave you unfulfilled.
 - 📍 Friendship is one mind in two bodies.
 - 📯 Friendship with oneself is all important because without it one cannot be friends with anybody else in the world.
 - 🪔 Faith, as well intentioned as it may be, must be built on facts, not fiction--faith in fiction is a damnable false hope.
