@@ -99,6 +99,7 @@
 - 🕹️ If you only have a hammer, you tend to see every problem as a nail.
 - 🕹️ It is only with the heart that one can see rightly, what is essential is invisible to the eye.
 - 🖥️ If you surrender to the wind, you can ride it.
+- 🥈 If we are not given the chance to forget, we are also not given the chance to recover our memories, to alter them with time, perspective, and wisdom. Forgetting, we can be ourselves beyond what the past has told us we are; we can evolve. That is the possibility we want from the future.
 - 🥈 If you do what you've always done, you'll get what you've always gotten.
 - 🦋 It is the mark of an educated mind to be able to entertain a thought without accepting it.
 - 🦾 It's not what you look at that matters, it's what you see.
