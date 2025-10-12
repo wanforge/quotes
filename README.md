@@ -217,6 +217,7 @@
 - 🕹️ Technology is nothing. What's important is that you have a faith in people, that they're basically good and smart, and if you give them tools, they'll do wonderful things with them.
 - 🛠️ The way you see people is the way you treat them, and the way you treat them is what they become.
 - 🥉 The strong bond of friendship is not always a balanced equation; friendship is not always about giving and taking in equal shares. Instead, friendship is grounded in a feeling that you know exactly who will be there for you when you need something, no matter what or when.
+- 🦋 The highest stage in moral culture at which we can arrive is when we recognize that we ought to control our thoughts.
 - 🦾 Those who dream by day are cognizant of many things which escape those who dream only by night.
 - 🦿 There is no need for temples, no need for complicated philosophies. My brain and my heart are my temples; my philosophy is kindness.
 - 🦿 To avoid criticism, do nothing, say nothing, be nothing.
