@@ -81,6 +81,7 @@
 - 🌝 It is impossible to love and to be wise.
 - 🌞 If you want a thing done well, do it yourself.
 - 🌻 In all things of nature there is something of the marvelous.
+- 🌼 If you're trying to create a company, it's like baking a cake. You have to have all the ingredients in the right proportion.
 - 🌿 If we could learn to like ourselves, even a little, maybe our cruelties and angers might melt away.
 - 🍃 I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on man unless they act.
 - 🍄 It is fatal to enter any war without the will to win it.
