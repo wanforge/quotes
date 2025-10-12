@@ -35,6 +35,7 @@
 - 📢 Character cannot be developed in ease and quiet. Only through experience of trial and suffering can the soul be strengthened, vision cleared, ambition inspired, and success achieved.
 
 ## D
+- 🌱 Decision is a risk rooted in the courage of being free.
 - 📢 Do not scorn what you have received, nor envy the gains of others. He who envies others does not obtain peace of mind.
 
 - ✨ Democracy's premise rests on the notion that the collective wisdom of the majority will prove right more often than it's wrong; that given sufficient opportunity in the pursuit of happiness, your population will develop its talents, its intellect, its better judgment; that over time its capacity for discernment and self-correction will be enlarged.
