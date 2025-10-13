@@ -208,6 +208,7 @@
 - 🌏 There is only one corner of the universe you can be certain of improving, and that's your own self.
 - 🌝 There is not one big cosmic meaning for all, there is only the meaning we each give to our life.
 - 🌠 The ultimate promise of technology is to make us master of a world that we command by the push of a button.
+- 🌱 The most I can do for my friend is simply be his friend.
 - 🌿 There is no fear for one whose mind is not filled with desires.
 - 🎁 The world makes way for the man who knows where he is going.
 - 🎼 Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose.
