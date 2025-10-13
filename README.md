@@ -148,6 +148,7 @@
 - 🎙️ Mimpi tidak akan terwujud dengan sendirinya
 
 ## N
+- 🌛 No one can make you feel inferior without your consent.
 - 🌸 Nothing is softer or more flexible than water, yet nothing can resist it.
 - 🥁 Nothing in life is to be feared. It is only to be understood.
 
