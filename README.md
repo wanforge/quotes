@@ -120,6 +120,7 @@
 - ⭐ Kegagalan adalah guru terbaik
 - 🌱 Kesempatan tidak datang dua kali, raih saat ini juga
 - 📢 Knowledge is knowing that a tomato is a fruit. Wisdom is knowing not to put it in a fruit salad.
+- 🔔 Knowledge comes, but wisdom lingers. It may not be difficult to store up in the mind a vast quantity of facts within a comparatively short time, but the ability to form judgments requires the severe discipline of hard work and the tempering heat of experience and maturity.
 
 - 🧿 Kebahagiaan datang ketika kita berhenti mengeluh
 - ⭐ Kesederhanaan adalah kecanggihan tertinggi
