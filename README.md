@@ -267,6 +267,7 @@
 - 🥉 With age comes wisdom and a high sex drive. And the wisdom to enjoy it.
 - 🧧 When you see a man of worth, think of how you may emulate him. When you see one who is unworthy, examine yourself.
 - 🧬 We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre.
+- 🪘 Wherever you go, go with all your heart.
 
 - ⭐ Wisdom has never made a bigot, but learning has.
 
