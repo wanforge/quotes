@@ -259,6 +259,7 @@
 - 🎸 Wherever a man may happen to turn, whatever a man may undertake, he will always end up by returning to the path which nature has marked out for him.
 - 🔖 When one tugs at a single thing in nature, he finds it attached to the rest of the world.
 - 🔥 We are either progressing or retrograding all the while. There is no such thing as remaining stationary in this life.
+- 🔬 When a friend is in trouble, don't annoy him by asking if there is anything you can do. Think up something appropriate and do it.
 - 🚀 We are made wise not by the recollection of our past, but by the responsibility for our future.
 - 🥁 We have two ears and one mouth so that we can listen twice as much as we speak.
 - 🥁 We live in a society bloated with data yet starved for wisdom. We're connected 24/7, yet anxiety, fear, depression and loneliness are at an all-time high. We must course-correct.
