@@ -95,6 +95,7 @@
 - 🎵 I am of the opinion that my life belongs to the community, and as long as I live it is my privilege to do for it whatever I can.
 - 🎷 If you were to offer a thirsty man all wisdom, you would not please him more than if you gave him a drink.
 - 💎 I do not know the American gentleman, god forgive me for putting two such words together.
+- 💧 I don't need a friend who changes when I change and who nods when I nod; my shadow does that much better.
 - 💧 Imagination is more important than knowledge...
 - 📜 It is impossible to escape the impression that people commonly use false standards of measurement — that they seek power, success and wealth for themselves and admire them in others, and that they underestimate what is of true value in life.
 - 📜 It is the nature of the wise to resist pleasures, but the foolish to be a slave to them.
