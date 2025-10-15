@@ -222,6 +222,7 @@
 - 📝 The greatest minds are capable of the greatest vices as well as of the greatest virtues.
 - 📝 The problem with Google is you have 360 degrees of omnidirectional information on a linear basis, but the algorithms for irony and ambiguity are not there. And those are the algorithms of wisdom.
 - 📡 The best cure for the body is a quiet mind.
+- 📢 Technology frightens me to death. It's designed by engineers to impress other engineers. And they always come with instruction booklets that are written by engineers for other engineers — which is why almost no technology ever works.
 - 📱 The path to success is to take massive, determined action.
 - 📱 The wisdom of the wise, and the experience of ages, may be preserved by quotation.
 - 🔔 This is the whole point of technology. It creates an appetite for immortality on the one hand. It threatens universal extinction on the other. Technology is lust removed from nature.
