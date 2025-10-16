@@ -194,6 +194,7 @@
 - 🎸 Results! Why, man, I have gotten a lot of results. I know several thousand things that won't work.
 
 ## S
+- 🌛 Science and technology revolutionize our lives, but memory, tradition and myth frame our response.
 - 🌛 So is cheerfulness, or a good temper, the more it is spent, the more remains.
 - 🌠 Subdue your appetites, my dears, and you've conquered human nature.
 - 🍀 Sports do not build character. They reveal it.
