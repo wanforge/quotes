@@ -74,6 +74,7 @@
 - 🔭 Great are they who see that spiritual is stronger than any material force, that thoughts rule the world.
 
 ## H
+- 🎺 How many cares one loses when one decides not to be something but to be someone.
 - 📱 History will be kind to me for I intend to write it.
 - 🦋 Happiness is found in doing, not merely possessing.
 - 🪘 Happiness does not come from doing easy work but from the afterglow of satisfaction that comes after the achievement of a difficult task that demanded our best.
