@@ -96,6 +96,7 @@
 - 🎯 I have just three things to teach: simplicity, patience, compassion. These three are your greatest treasures.
 - 🎵 I am of the opinion that my life belongs to the community, and as long as I live it is my privilege to do for it whatever I can.
 - 🎷 If you were to offer a thirsty man all wisdom, you would not please him more than if you gave him a drink.
+- 🎷 In the business world, the rearview mirror is always clearer than the windshield.
 - 💎 I do not know the American gentleman, god forgive me for putting two such words together.
 - 💧 I am always ready to learn although I do not always like being taught.
 - 💧 I don't need a friend who changes when I change and who nods when I nod; my shadow does that much better.
