@@ -61,6 +61,7 @@
 - 💎 Focusing your life solely on making a buck shows a poverty of ambition. It asks too little of yourself. And it will leave you unfulfilled.
 - 📍 Friendship is one mind in two bodies.
 - 📯 Friendship with oneself is all important because without it one cannot be friends with anybody else in the world.
+- 🧿 Friends are the siblings God never gave us.
 - 🪔 Faith, as well intentioned as it may be, must be built on facts, not fiction--faith in fiction is a damnable false hope.
 
 - 🌿 Friendship is held to be the severest test of character. It is easy, we think, to be loyal to a family and clan, whose blood is in your own veins.
