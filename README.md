@@ -232,6 +232,7 @@
 - 🎼 Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose.
 - 🏆 Truth, and goodness, and beauty are but different faces of the same all.
 - 💡 The key is to keep company only with people who uplift you, whose presence calls forth your best.
+- 📍 Think as a wise man but communicate in the language of the people.
 - 📜 There is nothing permanent except change.
 - 📝 The greatest minds are capable of the greatest vices as well as of the greatest virtues.
 - 📝 The problem with Google is you have 360 degrees of omnidirectional information on a linear basis, but the algorithms for irony and ambiguity are not there. And those are the algorithms of wisdom.
