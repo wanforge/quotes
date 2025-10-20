@@ -289,5 +289,6 @@
 ## Y
 - 🎤 You cannot be lonely if you like the person you're alone with.
 - 🎸 You win the victory when you yield to friends.
+- 🔮 You must do the things you think you cannot do.
 
 - 🎊 You can always count on Americans to do the right thing - after they've tried everything else.
