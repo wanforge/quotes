@@ -279,6 +279,7 @@
 - 🎤 Whatever is not yours: let go of it. Your letting go of it will be for your long-term happiness & benefit.
 - 🎧 Without freedom of thought, there can be no such thing as wisdom - and no such thing as public liberty without freedom of speech.
 - 🎸 Wherever a man may happen to turn, whatever a man may undertake, he will always end up by returning to the path which nature has marked out for him.
+- 🏆 We come to love not by finding a perfect person, but by learning to see an imperfect person perfectly.
 - 🔖 When one tugs at a single thing in nature, he finds it attached to the rest of the world.
 - 🔥 We are either progressing or retrograding all the while. There is no such thing as remaining stationary in this life.
 - 🔬 When a friend is in trouble, don't annoy him by asking if there is anything you can do. Think up something appropriate and do it.
