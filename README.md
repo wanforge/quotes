@@ -18,6 +18,7 @@
 - 🦾 All of our technology is completely unnecessary to a happy life.
 - 🦾 Anything you really want, you can attain, if you really go after it.
 - 🧧 A lot of times people look at the negative side of what they feel they can't do. I always look on the positive side of what I can do.
+- 🧩 A ruffled mind makes a restless pillow.
 - 🪘 All this modern technology just makes people try to do everything at once.
 
 - 📍 Always seek out the seed of triumph in every adversity.
