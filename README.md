@@ -41,6 +41,7 @@
 - 📢 Character cannot be developed in ease and quiet. Only through experience of trial and suffering can the soul be strengthened, vision cleared, ambition inspired, and success achieved.
 
 ## D
+- 🌏 Doing what you love is the cornerstone of having abundance in your life.
 - 🌱 Decision is a risk rooted in the courage of being free.
 - 🌻 Discovery consists of seeing what everybody has seen and thinking what nobody else has thought.
 - 🎁 Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict.
