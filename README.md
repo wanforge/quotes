@@ -79,6 +79,7 @@
 
 ## H
 - 🎺 How many cares one loses when one decides not to be something but to be someone.
+- 📱 Happiness is as a butterfly which, when pursued, is always beyond our grasp, but which if you will sit down quietly, may alight upon you.
 - 📱 History will be kind to me for I intend to write it.
 - 🦋 Happiness is found in doing, not merely possessing.
 - 🪘 Happiness does not come from doing easy work but from the afterglow of satisfaction that comes after the achievement of a difficult task that demanded our best.
