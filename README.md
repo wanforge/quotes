@@ -186,6 +186,7 @@
 - 🎶 Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road.
 - 💎 Obstacles are those things you see when you take your eyes off the goal.
 - 📡 One must be fond of people and trust them if one is not to make a mess of life.
+- 🖱️ Our character is what we do when we think no one is looking.
 
 - 🌈 One who gains strength by overcoming obstacles possesses the only strength which can overcome adversity.
 
