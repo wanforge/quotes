@@ -159,6 +159,7 @@
 - 🔋 My best friend is the one who brings out the best in me.
 - 🔭 Man is not sum of what he has already, but rather the sum of what he does not yet have, of what he could have.
 - 🖱️ Men in general judge more from appearances than from reality. All men have eyes, but few have the gift of penetration.
+- 🦾 Meaning is not what you start with but what you end up with.
 
 - 🎙️ Mimpi tidak akan terwujud dengan sendirinya
 
