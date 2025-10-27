@@ -100,6 +100,7 @@
 - 🍃 I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on man unless they act.
 - 🍄 It is fatal to enter any war without the will to win it.
 - 🎁 I always wanted to be somebody, but I should have been more specific.
+- 🎁 I'd rather regret the things that I have done than the things that I have not done.
 - 🎆 If you do not change direction, you may end up where you are heading.
 - 🎎 I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder.
 - 🎯 I have just three things to teach: simplicity, patience, compassion. These three are your greatest treasures.
