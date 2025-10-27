@@ -4,6 +4,7 @@
 - ⚡ A good hockey player plays where the puck is. A great hockey player plays where the puck is going to be.
 - 🌝 A heart well prepared for adversity in bad times hopes, and in good times fears for a change in fortune.
 - 🌠 A good head and a good heart are always a formidable combination.
+- 🌠 A lot of people give up just before theyre about to make it. You know you never know when that next obstacle is going to be the last one.
 - 🌠 All our dreams can come true, if we have the courage to pursue them.
 - 🌱 A prudent question is one half of wisdom.
 - 🍀 A poem begins in delight and ends in wisdom.
