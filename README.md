@@ -167,6 +167,7 @@
 - 🔭 Man is not sum of what he has already, but rather the sum of what he does not yet have, of what he could have.
 - 🔮 Moral excellence comes about as a result of habit. We become just by doing just acts, temperate by doing temperate acts, brave by doing brave acts.
 - 🖱️ Men in general judge more from appearances than from reality. All men have eyes, but few have the gift of penetration.
+- 🥈 Most people are about as happy as they make up their minds to be
 - 🦾 Meaning is not what you start with but what you end up with.
 
 - 🎙️ Mimpi tidak akan terwujud dengan sendirinya
