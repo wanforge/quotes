@@ -189,6 +189,7 @@
 - 🎊 Opportunity is missed by most because it is dressed in overalls and looks like work.
 - 🎶 Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road.
 - 💎 Obstacles are those things you see when you take your eyes off the goal.
+- 📌 One is not called noble who harms living beings. By not harming living beings one is called noble.
 - 📡 One must be fond of people and trust them if one is not to make a mess of life.
 - 🖱️ Our character is what we do when we think no one is looking.
 
