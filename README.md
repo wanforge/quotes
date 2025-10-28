@@ -293,6 +293,7 @@
 - 🌻 Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values.
 - 🍃 We are wiser than we know.
 - 🎆 We must not say every mistake is a foolish one.
+- 🎙️ Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.
 - 🎤 Whatever is not yours: let go of it. Your letting go of it will be for your long-term happiness & benefit.
 - 🎧 Without freedom of thought, there can be no such thing as wisdom - and no such thing as public liberty without freedom of speech.
 - 🎶 When we are no longer able to change a situation - we are challenged to change ourselves.
