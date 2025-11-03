@@ -240,6 +240,7 @@
 - ⚡ The will to win, the desire to succeed, the urge to reach your full potential... these are the keys that will unlock the door to personal excellence.
 - ⚡ The winds and waves are always on the side of the ablest navigators.
 - ⚡ To be what we are, and to become what we are capable of becoming, is the only end of life.
+- ✨ The free man is he who does not fear to go to the end of his thought.
 - 🌈 The real danger is not that computers will begin to think like men, but that men will begin to think like computers.
 - 🌊 The secret of business is to know something that nobody else knows.
 - 🌊 To see things in the seed, that is genius.
