@@ -182,6 +182,7 @@
 - 🌛 No one can make you feel inferior without your consent.
 - 🌱 Never idealize others. They will never live up to your expectations.
 - 🌸 Nothing is softer or more flexible than water, yet nothing can resist it.
+- 🖱️ Never tell people how to do things. Tell them what to do and they will surprise you with their ingenuity.
 - 🥁 Nothing in life is to be feared. It is only to be understood.
 
 - 🎺 No party has a monopoly on wisdom. No democracy works without compromise.
