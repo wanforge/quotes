@@ -8,6 +8,7 @@
 - 🌠 All our dreams can come true, if we have the courage to pursue them.
 - 🌱 A prudent question is one half of wisdom.
 - 🍀 A poem begins in delight and ends in wisdom.
+- 🍁 A real friend is one who walks in when the rest of the world walks out.
 - 🍃 All children are artists. The problem is how to remain an artist once he grows up.
 - 🎈 A quarrel between friends, when made up, adds a new tie to friendship.
 - 🎈 An ounce of emotion is equal to a ton of facts.
