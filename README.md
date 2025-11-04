@@ -195,6 +195,7 @@
 - 🌛 Once you choose hope, anything's possible.
 - 🌠 Once you label me you negate me.
 - 🌿 Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time.
+- 🍀 One loyal friend is worth ten thousand relatives.
 - 🎊 Opportunity is missed by most because it is dressed in overalls and looks like work.
 - 🎶 Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road.
 - 💎 Obstacles are those things you see when you take your eyes off the goal.
