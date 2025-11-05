@@ -308,6 +308,7 @@
 - 🎆 We must not say every mistake is a foolish one.
 - 🎙️ Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.
 - 🎤 Whatever is not yours: let go of it. Your letting go of it will be for your long-term happiness & benefit.
+- 🎧 We may encounter many defeats, but we must not be defeated.
 - 🎧 Without freedom of thought, there can be no such thing as wisdom - and no such thing as public liberty without freedom of speech.
 - 🎶 When we are no longer able to change a situation - we are challenged to change ourselves.
 - 🎸 Wherever a man may happen to turn, whatever a man may undertake, he will always end up by returning to the path which nature has marked out for him.
