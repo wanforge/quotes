@@ -99,6 +99,7 @@
 - 🌝 It is impossible to love and to be wise.
 - 🌝 It may happen sometimes that a long debate becomes the cause of a longer friendship. Commonly, those who dispute with one another at last agree.
 - 🌞 If you want a thing done well, do it yourself.
+- 🌱 If you have a harem of 40 women, you never get to know any of them very well.
 - 🌱 It is not so important to know everything as to appreciate what we learn.
 - 🌻 In all things of nature there is something of the marvelous.
 - 🌼 If you're trying to create a company, it's like baking a cake. You have to have all the ingredients in the right proportion.
