@@ -330,6 +330,7 @@
 
 ## Y
 - 🎤 You cannot be lonely if you like the person you're alone with.
+- 🎯 You cannot escape the responsibility of tomorrow by evading it today.
 - 🎸 You win the victory when you yield to friends.
 - 🔮 You must do the things you think you cannot do.
 
