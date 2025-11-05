@@ -61,6 +61,7 @@
 - 🍁 Efficiency is doing things right; effectiveness is doing the right things.
 
 ## F
+- ☀️ Few people are capable of expressing with equanimity opinions which differ from the prejudices of their social environment. Most people are even incapable of forming such opinions.
 - 🌈 Friendship improves happiness and abates misery, by the doubling of our joy and the dividing of our grief.
 - 🌛 Failure will never overtake me if my determination to succeed is strong enough.
 - 🌝 Friendship is like money, easier made than kept.
