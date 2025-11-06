@@ -97,6 +97,7 @@
 - 🌰 He who hath many friends hath none.
 
 ## I
+- ⌨️ If one advances confidently in the direction of his dream, and endeavors to live the life which he had imagines, he will meet with a success unexpected in common hours.
 - ☀️ It's easier to resist at the beginning than at the end.
 - 🌝 I'm a great believer in luck and I find the harder I work, the more I have of it.
 - 🌝 It is impossible to love and to be wise.
