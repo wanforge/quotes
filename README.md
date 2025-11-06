@@ -266,6 +266,7 @@
 - 🌻 Tennis is a perfect combination of violent action taking place in an atmosphere of total tranquillity.
 - 🌿 There is no fear for one whose mind is not filled with desires.
 - 🍄 The price of greatness is responsibility.
+- 🍄 The smallest flower is a thought, a life answering to some feature of the Great Whole, of whom they have a persistent intuition.
 - 🎁 The world makes way for the man who knows where he is going.
 - 🎼 Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose.
 - 🏆 Truth, and goodness, and beauty are but different faces of the same all.
