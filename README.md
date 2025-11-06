@@ -28,6 +28,7 @@
 - 📍 Always seek out the seed of triumph in every adversity.
 
 ## B
+- 🌼 Be the chief but never the lord.
 - 🎶 Belajar adalah harta karun yang akan mengikuti pemiliknya ke mana pun
 - 📍 Baseball is the only field of endeavor where a man can succeed three times out of ten and be considered a good performer.
 - 🕹️ But man is not made for defeat. A man can be destroyed but not defeated.
