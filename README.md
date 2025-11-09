@@ -101,6 +101,7 @@
 ## I
 - ⌨️ If one advances confidently in the direction of his dream, and endeavors to live the life which he had imagines, he will meet with a success unexpected in common hours.
 - ☀️ It's easier to resist at the beginning than at the end.
+- 🌏 Imagination allows us to escape the predictable. It enables us to reply to the common wisdom that we cannot soar by saying, 'Just watch!'
 - 🌝 I'm a great believer in luck and I find the harder I work, the more I have of it.
 - 🌝 It is impossible to love and to be wise.
 - 🌝 It may happen sometimes that a long debate becomes the cause of a longer friendship. Commonly, those who dispute with one another at last agree.
