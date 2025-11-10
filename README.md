@@ -21,6 +21,7 @@
 - 🥇 Action is the foundational key to all success.
 - 🦾 All of our technology is completely unnecessary to a happy life.
 - 🦾 Anything you really want, you can attain, if you really go after it.
+- 🧠 Anybody can make history. Only a great man can write it.
 - 🧧 A lot of times people look at the negative side of what they feel they can't do. I always look on the positive side of what I can do.
 - 🧩 A ruffled mind makes a restless pillow.
 - 🪘 All this modern technology just makes people try to do everything at once.
