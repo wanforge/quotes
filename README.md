@@ -125,6 +125,7 @@
 - 💧 I am always ready to learn although I do not always like being taught.
 - 💧 I don't need a friend who changes when I change and who nods when I nod; my shadow does that much better.
 - 💧 Imagination is more important than knowledge...
+- 📌 If you don't like something, change it. If you can't change it, change your attitude.
 - 📜 It is impossible to escape the impression that people commonly use false standards of measurement — that they seek power, success and wealth for themselves and admire them in others, and that they underestimate what is of true value in life.
 - 📜 It is the nature of the wise to resist pleasures, but the foolish to be a slave to them.
 - 📝 If you are bitter, you are like a dry leaf that you can just squash, and you can get blown away by the wind. There is much more wisdom in forgiveness.
