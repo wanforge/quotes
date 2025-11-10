@@ -178,6 +178,7 @@
 ## M
 - 🌈 Memory is the mother of all wisdom.
 - 🎈 Make the best use of what is in your power and take the rest as it happens.
+- 🎈 Most great people have attained their greatest success just one step beyond their greatest failure.
 - 🎤 Music is a higher revelation than all wisdom and philosophy.
 - 📌 Men are disturbed not by things, but by the view which they take of them.
 - 📱 Meditation brings wisdom, lack of meditation leaves ignorance. Know well what leads you forward and what holds you back and choose the path that leads to wisdom.
