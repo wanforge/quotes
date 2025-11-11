@@ -85,6 +85,7 @@
 ## G
 - 🌈 Go put your creed into the deed. Nor speak with double tongue.
 - 🌱 Gratitude is not only the greatest of virtues, but the parent of all the others.
+- 🌸 Good actions give strength to ourselves and inspire good actions in others.
 - 🌿 Genuine sincerity opens people's hearts, while manipulation causes them to close.
 - 🖌️ Golf is a game in which one endeavors to control a ball with implements ill adapted for the purpose.
 
