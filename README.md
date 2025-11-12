@@ -333,6 +333,7 @@
 - 🌱 Where all think alike, no one thinks very much.
 - 🌻 Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values.
 - 🍃 We are wiser than we know.
+- 🍃 We do not quit playing because we grow old, we grow old because we quit playing.
 - 🎆 We must not say every mistake is a foolish one.
 - 🎙️ Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.
 - 🎤 Whatever is not yours: let go of it. Your letting go of it will be for your long-term happiness & benefit.
