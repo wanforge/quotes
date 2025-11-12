@@ -317,6 +317,10 @@
 - 🥉 Three things cannot be long hidden: the sun, the moon, and the truth.
 - 🎨 To make no mistakes is not in the power of man; but from their errors and mistakes the wise and good learn wisdom for the future.
 
+## U
+
+- 💧 Until you value yourself, you won't value your time. Until you value your time, you won't do anything with it.
+
 ## V
 
 - 🔭 Victory belongs to the most persevering.
