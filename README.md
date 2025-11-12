@@ -174,6 +174,7 @@
 - 🎊 Logic will get you from A to B. Imagination will take you everywhere.
 - 🏅 Learning is the beginning of wealth. Learning is the beginning of health. Learning is the beginning of spirituality. Searching and learning is where the miracle process all begins.
 - 🏆 Love yourself first and everything else falls into line. You really have to love yourself to get anything done in this world.
+- 💻 Love cures people - both the ones who give it and the ones who receive it.
 - 🔭 Let us sacrifice our today so that our children can have a better tomorrow.
 - 🥈 Life a culmination of the past, an awareness of the present, an indication of the future beyond knowledge, the quality that gives a touch of divinity to matter.
 
