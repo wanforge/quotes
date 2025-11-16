@@ -236,6 +236,7 @@
 - 📡 Perseverance is a great element of success. If you only knock long enough and loud enough at the gate, you are sure to wake up somebody.
 - 🔔 Pitching is the art of instilling fear.
 - 🔬 Prejudice is a burden that confuses the past, threatens the future and renders the present inaccessible.
+- 🧬 People don't notice whether it's winter or summer when they're happy.
 
 - 🎺 Perjalanan ribuan mil dimulai dengan satu langkah
 
