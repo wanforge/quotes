@@ -15,6 +15,7 @@
 - 🎈 An ounce of emotion is equal to a ton of facts.
 - 🎹 Avoid having your ego so close to your position that when your position falls, your ego goes with it.
 - 🏮 All great men are gifted with intuition. They know without reasoning or analysis, what they need to know.
+- 📜 Ability will never catch up with the demand for it.
 - 📯 A goal without a plan is just a wish.
 - 🖥️ A friend to all is a friend to none.
 - 🥇 A dream is your creative vision for your life in the future. You must break out of your current comfort zone and become comfortable with the unfamiliar and the unknown.
