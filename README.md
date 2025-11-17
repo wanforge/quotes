@@ -284,6 +284,7 @@
 - 🌠 The ultimate promise of technology is to make us master of a world that we command by the push of a button.
 - 🌱 The most I can do for my friend is simply be his friend.
 - 🌻 Tennis is a perfect combination of violent action taking place in an atmosphere of total tranquillity.
+- 🌼 The superior man is modest in his speech but exceeds in his actions.
 - 🌿 There is no fear for one whose mind is not filled with desires.
 - 🍄 The price of greatness is responsibility.
 - 🍄 The smallest flower is a thought, a life answering to some feature of the Great Whole, of whom they have a persistent intuition.
