@@ -62,6 +62,7 @@
 
 ## E
 - 🎷 Even if you're on the right track, you'll get run over if you just sit there.
+- 📌 Each misfortune you encounter will carry in it the seed of tomorrows good luck.
 
 - 🍁 Efficiency is doing things right; effectiveness is doing the right things.
 
