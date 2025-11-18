@@ -386,6 +386,7 @@
 - 🎤 You cannot be lonely if you like the person you're alone with.
 - 🎯 You cannot escape the responsibility of tomorrow by evading it today.
 - 🎸 You win the victory when you yield to friends.
+- 🔬 You need chaos in your soul to give birth to a dancing star.
 - 🔮 You must do the things you think you cannot do.
 
 - 🎊 You can always count on Americans to do the right thing - after they've tried everything else.
