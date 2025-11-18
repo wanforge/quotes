@@ -318,6 +318,7 @@
 - 🖌️ True friendship multiplies the good in life and divides its evils. Strive to have friends, for life without friends is like life on a desert island... to find one real friend in a lifetime is good fortune; to keep him is a blessing.
 - 🛠️ The way you see people is the way you treat them, and the way you treat them is what they become.
 - 🥇 The simplest things are often the truest.
+- 🥈 Think how hard physics would be if particles could think.
 - 🥉 The strong bond of friendship is not always a balanced equation; friendship is not always about giving and taking in equal shares. Instead, friendship is grounded in a feeling that you know exactly who will be there for you when you need something, no matter what or when.
 - 🦋 The highest stage in moral culture at which we can arrive is when we recognize that we ought to control our thoughts.
 - 🦾 Those who dream by day are cognizant of many things which escape those who dream only by night.
