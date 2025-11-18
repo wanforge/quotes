@@ -129,6 +129,7 @@
 - 🎵 I am of the opinion that my life belongs to the community, and as long as I live it is my privilege to do for it whatever I can.
 - 🎷 If you were to offer a thirsty man all wisdom, you would not please him more than if you gave him a drink.
 - 🎷 In the business world, the rearview mirror is always clearer than the windshield.
+- 🎼 If there is no struggle, there is no progress.
 - 💎 I do not know the American gentleman, god forgive me for putting two such words together.
 - 💡 Irrigators channel waters; fletchers straighten arrows; carpenters bend wood; the wise master themselves.
 - 💧 I am always ready to learn although I do not always like being taught.
