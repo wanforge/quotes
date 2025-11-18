@@ -373,6 +373,7 @@
 - 🥉 With age comes wisdom and a high sex drive. And the wisdom to enjoy it.
 - 🧠 Whenever you find yourself on the side of the majority, it is time to pause and reflect.
 - 🧧 When you see a man of worth, think of how you may emulate him. When you see one who is unworthy, examine yourself.
+- 🧨 We must never forget that it is through our actions, words, and thoughts that we have a choice.
 - 🧬 We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre.
 - 🧰 We choose our joys and sorrows long before we experience them.
 - 🪘 Wherever you go, go with all your heart.
