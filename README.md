@@ -44,6 +44,7 @@
 - 🎺 Bumi ini cukup untuk tujuh generasi, tetapi tidak untuk tujuh orang serakah
 
 ## C
+- 🌊 Courage is not the absence of fear, but simply moving on with dignity despite that fear.
 - 🍃 Can miles truly separate you from friends... If you want to be with someone you love, aren't you already there?
 - 🎵 Conditions fall apart. Persist with diligence.
 - 🔭 Commitment is an act, not a word.
