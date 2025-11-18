@@ -282,6 +282,7 @@
 - ⚡ To lead people walk behind them.
 - ✨ The free man is he who does not fear to go to the end of his thought.
 - 🌈 The real danger is not that computers will begin to think like men, but that men will begin to think like computers.
+- 🌊 The personal life deeply lived always expands into truths beyond itself.
 - 🌊 The secret of business is to know something that nobody else knows.
 - 🌊 To see things in the seed, that is genius.
 - 🌏 The more man meditates upon good thoughts, the better will be his world and the world at large.
