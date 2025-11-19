@@ -206,6 +206,7 @@
 - 🎙️ Mimpi tidak akan terwujud dengan sendirinya
 
 ## N
+- ⚡ Not every difficult and dangerous thing is suitable for training, but only that which is conducive to success in achieving the object of our effort.
 - 🌈 No work or love will flourish out of guilt, fear, or hollowness of heart, just as no valid plans for the future can be made by those who have no capacity for living now.
 - 🌛 No one can make you feel inferior without your consent.
 - 🌱 Never idealize others. They will never live up to your expectations.
