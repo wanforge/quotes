@@ -164,6 +164,10 @@
 
 - 🪘 In the middle of every difficulty lies opportunity.
 
+## J
+
+- 🎶 Just as a mother would protect her only child with her life, even so let one cultivate a boundless love towards all beings.
+
 ## K
 - ⭐ Kegagalan adalah guru terbaik
 - 🌰 Knowing is not enough; we must apply!
