@@ -15,6 +15,7 @@
 - 🎈 An ounce of emotion is equal to a ton of facts.
 - 🎹 Avoid having your ego so close to your position that when your position falls, your ego goes with it.
 - 🏮 All great men are gifted with intuition. They know without reasoning or analysis, what they need to know.
+- 💧 All men have a sweetness in their life. That is what helps them go on. It is towards that they turn when they feel too worn out.
 - 📜 Ability will never catch up with the demand for it.
 - 📯 A goal without a plan is just a wish.
 - 🖥️ A friend to all is a friend to none.
