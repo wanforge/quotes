@@ -382,6 +382,7 @@
 - 🏆 We come to love not by finding a perfect person, but by learning to see an imperfect person perfectly.
 - 🏮 When you come to the end of your rope, tie a knot and hang on.
 - 📜 Wise men make more opportunities than they find.
+- 🔔 When you are offended at any man's fault, turn to yourself and study your own failings. Then you will forget your anger.
 - 🔖 When one tugs at a single thing in nature, he finds it attached to the rest of the world.
 - 🔥 We are either progressing or retrograding all the while. There is no such thing as remaining stationary in this life.
 - 🔬 When a friend is in trouble, don't annoy him by asking if there is anything you can do. Think up something appropriate and do it.
