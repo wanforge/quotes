@@ -187,6 +187,7 @@
 - 🌱 Leave no stone unturned.
 - 🌸 Love is the only force capable of transforming an enemy into a friend.
 - 🎊 Logic will get you from A to B. Imagination will take you everywhere.
+- 🎎 Life is 10% what happens to you and 90% how you react to it.
 - 🏅 Learning is the beginning of wealth. Learning is the beginning of health. Learning is the beginning of spirituality. Searching and learning is where the miracle process all begins.
 - 🏆 Love yourself first and everything else falls into line. You really have to love yourself to get anything done in this world.
 - 💻 Love cures people - both the ones who give it and the ones who receive it.
