@@ -307,6 +307,7 @@
 - 🌻 Tennis is a perfect combination of violent action taking place in an atmosphere of total tranquillity.
 - 🌼 The superior man is modest in his speech but exceeds in his actions.
 - 🌿 There is no fear for one whose mind is not filled with desires.
+- 🍄 The greatest pleasure I know is to do a good action by stealth, and to have it found out by accident.
 - 🍄 The price of greatness is responsibility.
 - 🍄 The smallest flower is a thought, a life answering to some feature of the Great Whole, of whom they have a persistent intuition.
 - 🎁 The world makes way for the man who knows where he is going.
