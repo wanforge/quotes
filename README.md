@@ -269,6 +269,7 @@
 - 🌛 Science and technology revolutionize our lives, but memory, tradition and myth frame our response.
 - 🌛 So is cheerfulness, or a good temper, the more it is spent, the more remains.
 - 🌠 Subdue your appetites, my dears, and you've conquered human nature.
+- 🌸 Some people go to priests; others to poetry; I to my friends.
 - 🍀 Sports do not build character. They reveal it.
 - 🍃 Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful.
 - 💡 Success is where preparation and opportunity meet.
