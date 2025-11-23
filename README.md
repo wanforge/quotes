@@ -26,6 +26,7 @@
 - 🧠 Anybody can make history. Only a great man can write it.
 - 🧧 A lot of times people look at the negative side of what they feel they can't do. I always look on the positive side of what I can do.
 - 🧩 A ruffled mind makes a restless pillow.
+- 🧩 Anyone who doesn't take truth seriously in small matters cannot be trusted in large ones either.
 - 🧰 Almost everything comes from nothing.
 - 🪘 All this modern technology just makes people try to do everything at once.
 - 🪘 An optimist is a person who sees a green light everywhere, while the pessimist sees only the red spotlight... The truly wise person is color-blind.
