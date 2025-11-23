@@ -294,6 +294,7 @@
 - ⚡ To be what we are, and to become what we are capable of becoming, is the only end of life.
 - ⚡ To lead people walk behind them.
 - ✨ The free man is he who does not fear to go to the end of his thought.
+- ⭐ This is the final test of a gentleman: his respect for those who can be of no possible value to him.
 - 🌈 The real danger is not that computers will begin to think like men, but that men will begin to think like computers.
 - 🌊 The personal life deeply lived always expands into truths beyond itself.
 - 🌊 The secret of business is to know something that nobody else knows.
