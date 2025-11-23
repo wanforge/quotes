@@ -300,6 +300,7 @@
 - 🌏 There is only one corner of the universe you can be certain of improving, and that's your own self.
 - 🌝 There is not one big cosmic meaning for all, there is only the meaning we each give to our life.
 - 🌠 The ultimate promise of technology is to make us master of a world that we command by the push of a button.
+- 🌰 The mark of your ignorance is the depth of your belief in injustice and tragedy. What the caterpillar calls the end of the world, the Master calls the butterfly.
 - 🌱 The most I can do for my friend is simply be his friend.
 - 🌻 Tennis is a perfect combination of violent action taking place in an atmosphere of total tranquillity.
 - 🌼 The superior man is modest in his speech but exceeds in his actions.
