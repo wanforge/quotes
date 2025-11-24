@@ -161,6 +161,7 @@
 - 🦋 It is the mark of an educated mind to be able to entertain a thought without accepting it.
 - 🦾 It's not what you look at that matters, it's what you see.
 - 🦿 It is difficult to achieve a spirit of genuine cooperation as long as people remain indifferent to the feelings and happiness of others.
+- 🧠 It is no use saying, 'We are doing our best.' You have got to succeed in doing what is necessary.
 - 🧧 I destroy my enemies when I make them my friends.
 - 🧩 Important principles may, and must, be inflexible.
 - 🧬 If you don't go after what you want, you'll never have it. If you don't ask, the answer is always no. If you don't step forward, you're always in the same place.
