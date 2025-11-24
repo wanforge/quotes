@@ -91,6 +91,7 @@
 - 🌿 Friendship is held to be the severest test of character. It is easy, we think, to be loyal to a family and clan, whose blood is in your own veins.
 
 ## G
+- ☀️ Go for it now. The future is promised to no one.
 - 🌈 Go put your creed into the deed. Nor speak with double tongue.
 - 🌱 Gratitude is not only the greatest of virtues, but the parent of all the others.
 - 🌸 Good actions give strength to ourselves and inspire good actions in others.
