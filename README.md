@@ -13,6 +13,7 @@
 - 🍃 All children are artists. The problem is how to remain an artist once he grows up.
 - 🎈 A quarrel between friends, when made up, adds a new tie to friendship.
 - 🎈 An ounce of emotion is equal to a ton of facts.
+- 🎶 Autumn is a second spring when every leaf is a flower.
 - 🎹 Avoid having your ego so close to your position that when your position falls, your ego goes with it.
 - 🏮 All great men are gifted with intuition. They know without reasoning or analysis, what they need to know.
 - 💧 All men have a sweetness in their life. That is what helps them go on. It is towards that they turn when they feel too worn out.
