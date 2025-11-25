@@ -18,6 +18,7 @@
 - 💧 All men have a sweetness in their life. That is what helps them go on. It is towards that they turn when they feel too worn out.
 - 📜 Ability will never catch up with the demand for it.
 - 📯 A goal without a plan is just a wish.
+- 🔬 All is flux; nothing stays still.
 - 🖥️ A friend to all is a friend to none.
 - 🥇 A dream is your creative vision for your life in the future. You must break out of your current comfort zone and become comfortable with the unfamiliar and the unknown.
 - 🥇 Action is the foundational key to all success.
