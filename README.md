@@ -379,6 +379,7 @@
 - 🍃 We do not quit playing because we grow old, we grow old because we quit playing.
 - 🎆 We must not say every mistake is a foolish one.
 - 🎙️ Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.
+- 🎤 We are masters of the unsaid words, but slaves of those we let slip out.
 - 🎤 Whatever is not yours: let go of it. Your letting go of it will be for your long-term happiness & benefit.
 - 🎧 We may encounter many defeats, but we must not be defeated.
 - 🎧 Without freedom of thought, there can be no such thing as wisdom - and no such thing as public liberty without freedom of speech.
