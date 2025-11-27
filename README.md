@@ -164,6 +164,7 @@
 - 🥈 If we are not given the chance to forget, we are also not given the chance to recover our memories, to alter them with time, perspective, and wisdom. Forgetting, we can be ourselves beyond what the past has told us we are; we can evolve. That is the possibility we want from the future.
 - 🥈 If you do what you've always done, you'll get what you've always gotten.
 - 🦋 It is the mark of an educated mind to be able to entertain a thought without accepting it.
+- 🦾 In rivers, the water that you touch is the last of what has passed and the first of that which comes; so with present time.
 - 🦾 It's not what you look at that matters, it's what you see.
 - 🦿 It is difficult to achieve a spirit of genuine cooperation as long as people remain indifferent to the feelings and happiness of others.
 - 🧠 It is no use saying, 'We are doing our best.' You have got to succeed in doing what is necessary.
