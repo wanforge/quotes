@@ -159,6 +159,7 @@
 - 🕹️ If you only have a hammer, you tend to see every problem as a nail.
 - 🕹️ It is only with the heart that one can see rightly, what is essential is invisible to the eye.
 - 🖥️ I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind.
+- 🖥️ If a man watches three football games in a row, he should be declared legally dead.
 - 🖥️ If you surrender to the wind, you can ride it.
 - 🥇 It isn't what happens to us that causes us to suffer; it's what we say to ourselves about what happens.
 - 🥈 If we are not given the chance to forget, we are also not given the chance to recover our memories, to alter them with time, perspective, and wisdom. Forgetting, we can be ourselves beyond what the past has told us we are; we can evolve. That is the possibility we want from the future.
