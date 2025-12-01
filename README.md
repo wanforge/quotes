@@ -420,6 +420,7 @@
 - 🎤 You cannot be lonely if you like the person you're alone with.
 - 🎯 You cannot escape the responsibility of tomorrow by evading it today.
 - 🎸 You win the victory when you yield to friends.
+- 💻 You can fool all the people some of the time, and some of the people all the time, but you cannot fool all the people all the time.
 - 🔬 You need chaos in your soul to give birth to a dancing star.
 - 🔮 You must do the things you think you cannot do.
 
