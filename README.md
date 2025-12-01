@@ -81,6 +81,7 @@
 - 🌱 Faith in oneself is the best and safest course.
 - 🌱 Freedom is not worth having if it does not connote freedom to err.
 - 🎁 Friendship is one of our most treasured relationships, but it isn't codified and celebrated; it's never going to give you a party.
+- 🎈 Failure doesn't mean you are a failure it just means you haven't succeeded yet.
 - 🎧 Feeling and longing are the motive forces behind all human endeavor and human creations.
 - 🎼 Friendship with oneself is all important, because without it one cannot be friends with anyone else in the world.
 - 💎 Focusing your life solely on making a buck shows a poverty of ambition. It asks too little of yourself. And it will leave you unfulfilled.
