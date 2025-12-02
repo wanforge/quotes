@@ -209,6 +209,7 @@
 - 🏆 Love yourself first and everything else falls into line. You really have to love yourself to get anything done in this world.
 - 💻 Love cures people - both the ones who give it and the ones who receive it.
 - 📌 Life is movement-we breathe, we eat, we walk, we move!
+- 📝 Learning without reflection is a waste, reflection without learning is dangerous.
 - 🔭 Let us sacrifice our today so that our children can have a better tomorrow.
 - 🥈 Life a culmination of the past, an awareness of the present, an indication of the future beyond knowledge, the quality that gives a touch of divinity to matter.
 
