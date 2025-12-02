@@ -129,6 +129,7 @@
 - 🌻 In all things of nature there is something of the marvelous.
 - 🌼 If you're trying to create a company, it's like baking a cake. You have to have all the ingredients in the right proportion.
 - 🌿 If we could learn to like ourselves, even a little, maybe our cruelties and angers might melt away.
+- 🌿 If you love life, don't waste time, for time is what life is made up of.
 - 🌿 It's easy to make a buck. It's a lot tougher to make a difference.
 - 🍃 I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on man unless they act.
 - 🍄 It is fatal to enter any war without the will to win it.
