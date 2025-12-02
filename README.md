@@ -115,6 +115,7 @@
 - 🌰 He who hath many friends hath none.
 
 ## I
+- ⌨️ I'm not afraid of storms, for I'm learning how to sail my ship.
 - ⌨️ If one advances confidently in the direction of his dream, and endeavors to live the life which he had imagines, he will meet with a success unexpected in common hours.
 - ☀️ If you don't know where you are going, any road will get you there.
 - ☀️ It's easier to resist at the beginning than at the end.
