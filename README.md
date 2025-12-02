@@ -62,6 +62,7 @@
 - 🌻 Discovery consists of seeing what everybody has seen and thinking what nobody else has thought.
 - 🎁 Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict.
 - 📢 Do not scorn what you have received, nor envy the gains of others. He who envies others does not obtain peace of mind.
+- 🔥 Do all things with love.
 - 🧪 Do you know what my favorite part of the game is? The opportunity to play.
 
 - ✨ Democracy's premise rests on the notion that the collective wisdom of the majority will prove right more often than it's wrong; that given sufficient opportunity in the pursuit of happiness, your population will develop its talents, its intellect, its better judgment; that over time its capacity for discernment and self-correction will be enlarged.
