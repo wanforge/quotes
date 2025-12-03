@@ -140,6 +140,7 @@
 - 🎁 I'd rather regret the things that I have done than the things that I have not done.
 - 🎆 If you do not change direction, you may end up where you are heading.
 - 🎎 I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder.
+- 🎤 If you spend your whole life waiting for the storm, you'll never enjoy the sunshine.
 - 🎯 I am not bothered by the fact that I am unknown. I am bothered when I do not know others.
 - 🎯 I have just three things to teach: simplicity, patience, compassion. These three are your greatest treasures.
 - 🎵 I am of the opinion that my life belongs to the community, and as long as I live it is my privilege to do for it whatever I can.
