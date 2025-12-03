@@ -107,6 +107,7 @@
 - 🔭 Great are they who see that spiritual is stronger than any material force, that thoughts rule the world.
 
 ## H
+- 🌝 Here is one quality that one must possess to win, and that is definiteness of purpose, the knowledge of what one wants, and a burning desire to possess it.
 - 🎵 He has no enemies, but is intensely disliked by his friends.
 - 🎺 How many cares one loses when one decides not to be something but to be someone.
 - 📱 Happiness is as a butterfly which, when pursued, is always beyond our grasp, but which if you will sit down quietly, may alight upon you.
