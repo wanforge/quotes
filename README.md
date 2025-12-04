@@ -13,6 +13,7 @@
 - 🍃 All children are artists. The problem is how to remain an artist once he grows up.
 - 🎈 A quarrel between friends, when made up, adds a new tie to friendship.
 - 🎈 An ounce of emotion is equal to a ton of facts.
+- 🎤 A failure is a man who has blundered but is not capable of cashing in on the experience.
 - 🎤 An organization, no matter how well designed, is only as good as the people who live and work in it.
 - 🎶 Autumn is a second spring when every leaf is a flower.
 - 🎹 Avoid having your ego so close to your position that when your position falls, your ego goes with it.
