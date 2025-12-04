@@ -352,6 +352,7 @@
 - 📯 There are things so deep and complex that only intuition can reach it in our stage of development as human beings.
 - 📱 The path to success is to take massive, determined action.
 - 📱 The wisdom of the wise, and the experience of ages, may be preserved by quotation.
+- 📱 Trouble is only opportunity in work clothes.
 - 🔋 The extreme limit of wisdom, that's what the public calls madness.
 - 🔔 This is the whole point of technology. It creates an appetite for immortality on the one hand. It threatens universal extinction on the other. Technology is lust removed from nature.
 - 🔔 Those that know, do. Those that understand, teach.
