@@ -185,6 +185,7 @@
 - 🧩 Important principles may, and must, be inflexible.
 - 🧬 If you don't go after what you want, you'll never have it. If you don't ask, the answer is always no. If you don't step forward, you're always in the same place.
 - 🧬 It is common sense to take a method and try it. If it fails, admit it frankly and try another. But above all, try something.
+- 🧿 If we all did the things we are capable of doing, we would literally astound ourselves.
 - 🧿 In the sweetness of friendship let there be laughter and sharing of pleasures. For in the dew of little things the heart finds its morning and is refreshed.
 - 🪕 Independence is happiness.
 
