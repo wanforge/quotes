@@ -156,6 +156,7 @@
 - 💧 I am always ready to learn although I do not always like being taught.
 - 💧 I don't need a friend who changes when I change and who nods when I nod; my shadow does that much better.
 - 💧 Imagination is more important than knowledge...
+- 💻 If with a pure mind a person speaks or acts, happiness follows them like a never-departing shadow.
 - 📌 I prefer to be true to myself, even at the hazard of incurring the ridicule of others, rather than to be false, and to incur my own abhorrence.
 - 📌 If you don't like something, change it. If you can't change it, change your attitude.
 - 📌 If you talk to a man in a language he understands, that goes to his head. If you talk to him in his language, that goes to his heart.
