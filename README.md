@@ -236,6 +236,7 @@
 - 🔋 My best friend is the one who brings out the best in me.
 - 🔭 Man is not sum of what he has already, but rather the sum of what he does not yet have, of what he could have.
 - 🔮 Moral excellence comes about as a result of habit. We become just by doing just acts, temperate by doing temperate acts, brave by doing brave acts.
+- 🖥️ Minds are like parachutes. They only function when open.
 - 🖱️ Men in general judge more from appearances than from reality. All men have eyes, but few have the gift of penetration.
 - 🖱️ Much though he recites the sacred texts, but acts not accordingly, that heedless man is like a cowherd who only counts the cows of others
 - 🥈 Most people are about as happy as they make up their minds to be
