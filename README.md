@@ -142,6 +142,7 @@
 - 🍄 It is fatal to enter any war without the will to win it.
 - 🎁 I always wanted to be somebody, but I should have been more specific.
 - 🎁 I'd rather regret the things that I have done than the things that I have not done.
+- 🎆 I walk slowly, but I never walk backward.
 - 🎆 If you do not change direction, you may end up where you are heading.
 - 🎎 I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder.
 - 🎤 If you spend your whole life waiting for the storm, you'll never enjoy the sunshine.
