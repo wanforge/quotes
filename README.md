@@ -138,6 +138,7 @@
 - 🌿 If you love life, don't waste time, for time is what life is made up of.
 - 🌿 It's easy to make a buck. It's a lot tougher to make a difference.
 - 🍁 I'm selfish, impatient and a little insecure. I make mistakes, I am out of control and at times hard to handle. But if you can't handle me at my worst, then you sure as hell don't deserve me at my best.
+- 🍂 I care not so much what I am to others as what I am to myself. I will be rich by myself, and not by borrowing.
 - 🍃 I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on man unless they act.
 - 🍄 It is fatal to enter any war without the will to win it.
 - 🎁 I always wanted to be somebody, but I should have been more specific.
