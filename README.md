@@ -56,6 +56,7 @@
 - 🎵 Conditions fall apart. Persist with diligence.
 - 🏆 Chaos and Order are not enemies, only opposites.
 - 🔭 Commitment is an act, not a word.
+- 🪔 Correction does much, but encouragement does more.
 
 - 📢 Character cannot be developed in ease and quiet. Only through experience of trial and suffering can the soul be strengthened, vision cleared, ambition inspired, and success achieved.
 
