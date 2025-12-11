@@ -291,6 +291,7 @@
 - 🌏 Parents can only give good advice or put them on the right paths, but the final forming of a person's character lies in their own hands.
 - 🌛 Problems are only opportunities with thorns on them.
 - 🍄 Patience and perseverance have a magical effect before which difficulties disappear and obstacles vanish.
+- 🏅 People are so constituted that everybody would rather undertake what they see others do, whether they have an aptitude for it or not.
 - 🏮 Programs must be written for people to read, and only incidentally for machines to execute.
 - 📡 Perseverance is a great element of success. If you only knock long enough and loud enough at the gate, you are sure to wake up somebody.
 - 🔔 Pitching is the art of instilling fear.
