@@ -65,6 +65,7 @@
 - 🌱 Decision is a risk rooted in the courage of being free.
 - 🌻 Discovery consists of seeing what everybody has seen and thinking what nobody else has thought.
 - 🎁 Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict.
+- 🎎 Don't judge each day by the harvest you reap but by the seeds that you plant.
 - 📢 Do not scorn what you have received, nor envy the gains of others. He who envies others does not obtain peace of mind.
 - 🔥 Do all things with love.
 - 🧪 Do you know what my favorite part of the game is? The opportunity to play.
