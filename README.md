@@ -261,6 +261,7 @@
 - 🌛 No one can make you feel inferior without your consent.
 - 🌱 Never idealize others. They will never live up to your expectations.
 - 🌸 Nothing is softer or more flexible than water, yet nothing can resist it.
+- 🎤 Nothing will work unless you do.
 - 🎸 No alibi will save you from accepting the responsibility.
 - 🏮 Never make friends with people who are above or below you in status. Such friendships will never give you any happiness.
 - 🏮 No act of kindness, no matter how small, is ever wasted.
