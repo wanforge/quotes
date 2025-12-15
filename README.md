@@ -277,6 +277,7 @@
 - 🌛 Once you choose hope, anything's possible.
 - 🌠 Once you label me you negate me.
 - 🌰 Our virtues and our failings are inseparable, like force and matter. When they separate, man is no more.
+- 🌱 Our intention creates our reality.
 - 🌿 Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time.
 - 🍀 One loyal friend is worth ten thousand relatives.
 - 🎊 Opportunity is missed by most because it is dressed in overalls and looks like work.
