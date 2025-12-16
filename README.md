@@ -440,6 +440,7 @@
 - 🎹 Wisdom consists of the anticipation of consequences.
 - 🏆 We come to love not by finding a perfect person, but by learning to see an imperfect person perfectly.
 - 🏆 Wishing to be friends is quick work, but friendship is a slow ripening fruit.
+- 🏮 We are all faced with a series of great opportunities brilliantly disguised as impossible situations.
 - 🏮 When you come to the end of your rope, tie a knot and hang on.
 - 📜 Wise men make more opportunities than they find.
 - 📝 We must embrace pain and burn it as fuel for our journey.
