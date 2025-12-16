@@ -361,6 +361,7 @@
 - 🍄 The price of greatness is responsibility.
 - 🍄 The smallest flower is a thought, a life answering to some feature of the Great Whole, of whom they have a persistent intuition.
 - 🎁 The world makes way for the man who knows where he is going.
+- 🎈 The possibilities are numerous once we decide to act and not react.
 - 🎈 To bring anything into your life, imagine that it's already there.
 - 🎙️ The way we communicate with others and with ourselves ultimately determines the quality of our lives.
 - 🎤 Technological progress has merely provided us with more efficient means for going backwards.
