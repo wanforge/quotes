@@ -285,6 +285,7 @@
 - 🌿 Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time.
 - 🍀 One loyal friend is worth ten thousand relatives.
 - 🎊 Opportunity is missed by most because it is dressed in overalls and looks like work.
+- 🎙️ Of course there is no formula for success except perhaps an unconditional acceptance of life and what it brings.
 - 🎶 Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road.
 - 💎 Obstacles are those things you see when you take your eyes off the goal.
 - 📌 One is not called noble who harms living beings. By not harming living beings one is called noble.
