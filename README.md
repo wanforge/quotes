@@ -16,6 +16,7 @@
 - 🎤 A failure is a man who has blundered but is not capable of cashing in on the experience.
 - 🎤 An organization, no matter how well designed, is only as good as the people who live and work in it.
 - 🎶 Autumn is a second spring when every leaf is a flower.
+- 🎸 A good decision is based on knowledge and not on numbers.
 - 🎹 Avoid having your ego so close to your position that when your position falls, your ego goes with it.
 - 🏮 All great men are gifted with intuition. They know without reasoning or analysis, what they need to know.
 - 💎 A little knowledge that acts is worth infinitely more than much knowledge that is idle.
