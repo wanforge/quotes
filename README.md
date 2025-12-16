@@ -472,5 +472,6 @@
 - 💻 You can fool all the people some of the time, and some of the people all the time, but you cannot fool all the people all the time.
 - 🔬 You need chaos in your soul to give birth to a dancing star.
 - 🔮 You must do the things you think you cannot do.
+- 🧩 You don't play against opponents, you play against the game of basketball.
 
 - 🎊 You can always count on Americans to do the right thing - after they've tried everything else.
