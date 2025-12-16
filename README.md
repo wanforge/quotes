@@ -232,6 +232,7 @@
 - 📌 Life is movement-we breathe, we eat, we walk, we move!
 - 📝 Learning without reflection is a waste, reflection without learning is dangerous.
 - 🔖 Life is not a problem to be solved, but a reality to be experienced.
+- 🔬 Laws alone can not secure freedom of expression; in order that every man present his views without penalty there must be spirit of tolerance in the entire population.
 - 🔭 Let us sacrifice our today so that our children can have a better tomorrow.
 - 🥈 Life a culmination of the past, an awareness of the present, an indication of the future beyond knowledge, the quality that gives a touch of divinity to matter.
 
