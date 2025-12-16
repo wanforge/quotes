@@ -112,6 +112,7 @@
 - 🔭 Great are they who see that spiritual is stronger than any material force, that thoughts rule the world.
 
 ## H
+- 🌛 Happiness is the reward we get for living to the highest right we know.
 - 🌝 Here is one quality that one must possess to win, and that is definiteness of purpose, the knowledge of what one wants, and a burning desire to possess it.
 - 🎵 He has no enemies, but is intensely disliked by his friends.
 - 🎺 How many cares one loses when one decides not to be something but to be someone.
