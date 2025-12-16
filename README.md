@@ -18,6 +18,7 @@
 - 🎶 Autumn is a second spring when every leaf is a flower.
 - 🎸 A good decision is based on knowledge and not on numbers.
 - 🎹 Avoid having your ego so close to your position that when your position falls, your ego goes with it.
+- 🎼 As a technology, the book is like a hammer. That is to say, it is perfect: a tool ideally suited to its task. Hammers can be tweaked and varied but will never go obsolete. Even when builders pound nails by the thousand with pneumatic nail guns, every household needs a hammer.
 - 🏮 All great men are gifted with intuition. They know without reasoning or analysis, what they need to know.
 - 💎 A little knowledge that acts is worth infinitely more than much knowledge that is idle.
 - 💧 All men have a sweetness in their life. That is what helps them go on. It is towards that they turn when they feel too worn out.
