@@ -165,6 +165,7 @@
 - 🎼 If there is no struggle, there is no progress.
 - 🏆 I am an optimist. It does not seem too much use being anything else.
 - 💎 I do not know the American gentleman, god forgive me for putting two such words together.
+- 💡 If you aren't going all the way, why go at all?
 - 💡 Irrigators channel waters; fletchers straighten arrows; carpenters bend wood; the wise master themselves.
 - 💧 I am always ready to learn although I do not always like being taught.
 - 💧 I don't need a friend who changes when I change and who nods when I nod; my shadow does that much better.
