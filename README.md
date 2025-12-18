@@ -246,6 +246,7 @@
 
 ## M
 - 🌈 Memory is the mother of all wisdom.
+- 🌼 Mistakes are the usual bridge between inexperience and wisdom.
 - 🎈 Make the best use of what is in your power and take the rest as it happens.
 - 🎈 Most great people have attained their greatest success just one step beyond their greatest failure.
 - 🎤 Music is a higher revelation than all wisdom and philosophy.
