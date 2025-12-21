@@ -439,6 +439,7 @@
 - ⭐ We don't receive wisdom; we must discover it for ourselves after a journey that no one can take for us or spare us.
 - 🌛 When something is important enough, you do it even if the odds are not in your favor.
 - 🌝 When I dare to be powerful, to use my strength in the service of my vision, then it becomes less and less important whether I am afraid.
+- 🌞 When your desires are strong enough you will appear to possess superhuman powers to achieve.
 - 🌱 Where all think alike, no one thinks very much.
 - 🌻 Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values.
 - 🍃 We are wiser than we know.
