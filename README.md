@@ -471,6 +471,7 @@
 - 🧨 We must never forget that it is through our actions, words, and thoughts that we have a choice.
 - 🧬 We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre.
 - 🧰 We choose our joys and sorrows long before we experience them.
+- 🧰 Wisdom is found only in truth.
 - 🪘 Wherever you go, go with all your heart.
 
 - ⭐ Wisdom has never made a bigot, but learning has.
