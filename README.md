@@ -42,6 +42,7 @@
 - 📍 Always seek out the seed of triumph in every adversity.
 
 ## B
+- ☀️ Beware of missing chances; otherwise it may be altogether too late someday.
 - 🌼 Be the chief but never the lord.
 - 🎶 Belajar adalah harta karun yang akan mengikuti pemiliknya ke mana pun
 - 🎼 Be Impeccable with Your Word. Speak with integrity. Say only what you mean. Avoid using the word to speak against yourself or to gossip about others. Use the power of your word in the direction of truth and love.
