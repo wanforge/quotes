@@ -335,6 +335,7 @@
 - 🍃 Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful.
 - 💡 Success is where preparation and opportunity meet.
 - 💻 Success in business requires training and discipline and hard work. But if you're not frightened by these things, the opportunities are just as great today as they ever were.
+- 🔖 Stay committed to your decisions, but stay flexible in your approach.
 - 🔥 Sometimes being a friend means mastering the art of timing. There is a time for silence. A time to let go and allow people to hurl themselves into their own destiny. And a time to prepare to pick up the pieces when it's all over.
 - 🕹️ Speak when you are angry, and you will make the best speech you will ever regret.
 - 🥇 Set your goals high, and don't stop till you get there.
