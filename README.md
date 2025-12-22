@@ -12,6 +12,7 @@
 - 🍀 An ant on the move does more than a dozing ox
 - 🍁 A real friend is one who walks in when the rest of the world walks out.
 - 🍃 All children are artists. The problem is how to remain an artist once he grows up.
+- 🎆 All truths are easy to understand once they are discovered; the point is to discover them.
 - 🎈 A quarrel between friends, when made up, adds a new tie to friendship.
 - 🎈 An ounce of emotion is equal to a ton of facts.
 - 🎤 A failure is a man who has blundered but is not capable of cashing in on the experience.
