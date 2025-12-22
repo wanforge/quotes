@@ -246,6 +246,7 @@
 - 🔬 Laws alone can not secure freedom of expression; in order that every man present his views without penalty there must be spirit of tolerance in the entire population.
 - 🔭 Let us sacrifice our today so that our children can have a better tomorrow.
 - 🥈 Life a culmination of the past, an awareness of the present, an indication of the future beyond knowledge, the quality that gives a touch of divinity to matter.
+- 🧠 Learn from yesterday, live for today, hope for tomorrow.
 
 - 🎹 Let go of your attachment to being right, and suddenly your mind is more open. You're able to benefit from the unique viewpoints of others, without being crippled by your own judgement.
 
