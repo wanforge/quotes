@@ -343,6 +343,7 @@
 - 🔖 Stay committed to your decisions, but stay flexible in your approach.
 - 🔥 Sometimes being a friend means mastering the art of timing. There is a time for silence. A time to let go and allow people to hurl themselves into their own destiny. And a time to prepare to pick up the pieces when it's all over.
 - 🕹️ Speak when you are angry, and you will make the best speech you will ever regret.
+- 🚀 Smile, breathe and go slowly.
 - 🥇 Set your goals high, and don't stop till you get there.
 - 🦾 Silence at the proper season is wisdom, and better than any speech.
 - 🦿 Spread love everywhere you go. Let no one ever come to you without leaving happier.
