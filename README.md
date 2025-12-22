@@ -137,6 +137,7 @@
 - ⌨️ If one advances confidently in the direction of his dream, and endeavors to live the life which he had imagines, he will meet with a success unexpected in common hours.
 - ☀️ If you don't know where you are going, any road will get you there.
 - ☀️ It's easier to resist at the beginning than at the end.
+- ✨ It's so simple to be wise. Just think of something stupid to say and then don't say it.
 - 🌏 Imagination allows us to escape the predictable. It enables us to reply to the common wisdom that we cannot soar by saying, 'Just watch!'
 - 🌝 I'm a great believer in luck and I find the harder I work, the more I have of it.
 - 🌝 It is impossible to love and to be wise.
