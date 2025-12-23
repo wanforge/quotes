@@ -283,6 +283,7 @@
 - 🏮 No act of kindness, no matter how small, is ever wasted.
 - 💎 Now this is not the end. It is not even the beginning of the end. But it is, perhaps, the end of the beginning.
 - 💡 No enterprise is more likely to succeed than one concealed from the enemy until it is ripe for execution.
+- 📯 Nothing diminishes anxiety faster than action.
 - 🖱️ Never tell people how to do things. Tell them what to do and they will surprise you with their ingenuity.
 - 🥁 Nothing in life is to be feared. It is only to be understood.
 
