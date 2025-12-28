@@ -429,6 +429,7 @@
 - 🦿 To avoid criticism, do nothing, say nothing, be nothing.
 - 🦿 True happiness means forging a strong spirit that is undefeated, no matter how trying our circumstances.
 - 🧠 The noblest worship is to make yourself as good and as just as you can.
+- 🧠 The truth you believe and cling to makes you unavailable to hear anything new.
 - 🧠 There are two ways of spreading light: to be the candle or the mirror that reflects it.
 - 🧠 There is no passion to be found playing small - in settling for a life that is less than the one you are capable of living.
 - 🧧 The truest wisdom is a resolute determination.
