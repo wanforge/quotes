@@ -198,6 +198,7 @@
 - 🖥️ I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind.
 - 🖥️ If a man watches three football games in a row, he should be declared legally dead.
 - 🖥️ If you surrender to the wind, you can ride it.
+- 🛠️ In complete darkness we are all the same, it is only our knowledge and wisdom that separates us, don't let your eyes deceive you.
 - 🥇 It isn't what happens to us that causes us to suffer; it's what we say to ourselves about what happens.
 - 🥈 If we are not given the chance to forget, we are also not given the chance to recover our memories, to alter them with time, perspective, and wisdom. Forgetting, we can be ourselves beyond what the past has told us we are; we can evolve. That is the possibility we want from the future.
 - 🥈 If you do what you've always done, you'll get what you've always gotten.
