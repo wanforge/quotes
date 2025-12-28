@@ -393,6 +393,7 @@
 - 🎼 Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose.
 - 🏆 Truth, and goodness, and beauty are but different faces of the same all.
 - 💡 The key is to keep company only with people who uplift you, whose presence calls forth your best.
+- 💡 There is no great genius without some touch of madness.
 - 📌 The real problem is not whether machines think but whether men do.
 - 📍 Think as a wise man but communicate in the language of the people.
 - 📜 There is nothing permanent except change.
