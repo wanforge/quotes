@@ -468,6 +468,7 @@
 - 🎧 We may encounter many defeats, but we must not be defeated.
 - 🎧 What makes Superman a hero is not that he has power, but that he has the wisdom and the maturity to use the power wisely. From an acting point of view, that's how I approached the part.
 - 🎧 Without freedom of thought, there can be no such thing as wisdom - and no such thing as public liberty without freedom of speech.
+- 🎨 We make a living by what we get, but we make a life by what we give.
 - 🎵 When you have got an elephant by the hind legs and he is trying to run away, it's best to let him run.
 - 🎶 When we are no longer able to change a situation - we are challenged to change ourselves.
 - 🎸 Wherever a man may happen to turn, whatever a man may undertake, he will always end up by returning to the path which nature has marked out for him.
