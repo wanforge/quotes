@@ -336,6 +336,7 @@
 
 ## R
 - 🌠 Reviewing what you have learned and learning anew, you are fit to be a teacher.
+- 🎆 Reality is merely an illusion, albeit a very persistent one.
 - 🦿 Rock n' roll as a genre is different from pop and hip hop: it is about bands, and that for me suggests brotherhood, family, friendship and community.
 
 - 🎸 Results! Why, man, I have gotten a lot of results. I know several thousand things that won't work.
