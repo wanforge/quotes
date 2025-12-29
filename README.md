@@ -200,6 +200,7 @@
 - 🕹️ If you only have a hammer, you tend to see every problem as a nail.
 - 🕹️ It is only with the heart that one can see rightly, what is essential is invisible to the eye.
 - 🖥️ I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind.
+- 🖥️ I can't listen to that much Wagner. I start getting the urge to conquer Poland.
 - 🖥️ If a man watches three football games in a row, he should be declared legally dead.
 - 🖥️ If you surrender to the wind, you can ride it.
 - 🛠️ In complete darkness we are all the same, it is only our knowledge and wisdom that separates us, don't let your eyes deceive you.
