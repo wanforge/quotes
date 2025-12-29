@@ -148,6 +148,7 @@
 - 🌞 If you want a thing done well, do it yourself.
 - 🌞 It is easier to live through someone else than to become complete yourself.
 - 🌱 If you have a harem of 40 women, you never get to know any of them very well.
+- 🌱 In skating over thin ice our safety is in our speed.
 - 🌱 It is not so important to know everything as to appreciate what we learn.
 - 🌻 In all things of nature there is something of the marvelous.
 - 🌼 If you're trying to create a company, it's like baking a cake. You have to have all the ingredients in the right proportion.
