@@ -15,6 +15,7 @@
 - 🎆 All truths are easy to understand once they are discovered; the point is to discover them.
 - 🎈 A quarrel between friends, when made up, adds a new tie to friendship.
 - 🎈 An ounce of emotion is equal to a ton of facts.
+- 🎙️ All phenomena are preceded by the mind, created by the mind, and have the mind as their master.
 - 🎤 A failure is a man who has blundered but is not capable of cashing in on the experience.
 - 🎤 An organization, no matter how well designed, is only as good as the people who live and work in it.
 - 🎶 Autumn is a second spring when every leaf is a flower.
