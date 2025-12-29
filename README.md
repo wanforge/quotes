@@ -130,6 +130,7 @@
 - 📱 Happiness is as a butterfly which, when pursued, is always beyond our grasp, but which if you will sit down quietly, may alight upon you.
 - 📱 History will be kind to me for I intend to write it.
 - 📱 However rare true love may be, it is less so than true friendship.
+- 🥉 Hope arouses, as nothing else can arouse, a passion for the possible.
 - 🦋 Happiness is found in doing, not merely possessing.
 - 🪘 Happiness does not come from doing easy work but from the afterglow of satisfaction that comes after the achievement of a difficult task that demanded our best.
 
