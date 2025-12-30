@@ -431,6 +431,7 @@
 - 🦋 The highest stage in moral culture at which we can arrive is when we recognize that we ought to control our thoughts.
 - 🦋 To go against the dominant thinking of your friends, of most of the people you see every day, is perhaps the most difficult act of heroism you can perform.
 - 🦾 Those who dream by day are cognizant of many things which escape those who dream only by night.
+- 🦿 The only person who never makes mistakes is the person who never does anything.
 - 🦿 The self is not something ready-made, but something in continuous formation through choice of action.
 - 🦿 There is no need for temples, no need for complicated philosophies. My brain and my heart are my temples; my philosophy is kindness.
 - 🦿 To avoid criticism, do nothing, say nothing, be nothing.
