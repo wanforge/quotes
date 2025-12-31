@@ -82,6 +82,7 @@
 - ✨ Democracy's premise rests on the notion that the collective wisdom of the majority will prove right more often than it's wrong; that given sufficient opportunity in the pursuit of happiness, your population will develop its talents, its intellect, its better judgment; that over time its capacity for discernment and self-correction will be enlarged.
 
 ## E
+- 🎊 Every man takes the limits of his own field of vision for the limits of the world.
 - 🎷 Even if you're on the right track, you'll get run over if you just sit there.
 - 📌 Each misfortune you encounter will carry in it the seed of tomorrows good luck.
 - 📚 Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you.
