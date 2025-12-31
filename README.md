@@ -510,6 +510,7 @@
 
 ## Y
 - 🎤 You cannot be lonely if you like the person you're alone with.
+- 🎧 You can only grow if you're willing to feel awkward and uncomfortable when you try something new.
 - 🎯 You cannot escape the responsibility of tomorrow by evading it today.
 - 🎸 You win the victory when you yield to friends.
 - 💻 You can fool all the people some of the time, and some of the people all the time, but you cannot fool all the people all the time.
