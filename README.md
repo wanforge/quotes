@@ -492,6 +492,7 @@
 - 🏆 Wishing to be friends is quick work, but friendship is a slow ripening fruit.
 - 🏮 We are all faced with a series of great opportunities brilliantly disguised as impossible situations.
 - 🏮 When you come to the end of your rope, tie a knot and hang on.
+- 💎 When in doubt, don't.
 - 📜 Wise men make more opportunities than they find.
 - 📝 We must embrace pain and burn it as fuel for our journey.
 - 🔔 When you are offended at any man's fault, turn to yourself and study your own failings. Then you will forget your anger.
