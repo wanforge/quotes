@@ -263,6 +263,7 @@
 - 🔖 Life is not a problem to be solved, but a reality to be experienced.
 - 🔬 Laws alone can not secure freedom of expression; in order that every man present his views without penalty there must be spirit of tolerance in the entire population.
 - 🔭 Let us sacrifice our today so that our children can have a better tomorrow.
+- 🖥️ Love is like a friendship caught on fire. In the beginning a flame, very pretty, often hot and fierce, but still only light and flickering. As love grows older, our hearts mature and our love becomes as coals, deep-burning and unquenchable.
 - 🥈 Life a culmination of the past, an awareness of the present, an indication of the future beyond knowledge, the quality that gives a touch of divinity to matter.
 - 🧠 Learn from yesterday, live for today, hope for tomorrow.
 
