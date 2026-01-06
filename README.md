@@ -521,6 +521,7 @@
 - 🧬 We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre.
 - 🧰 We choose our joys and sorrows long before we experience them.
 - 🧰 Wisdom is found only in truth.
+- 🧲 When the world is so complicated, the simple gift of friendship is within all of our hands.
 - 🪘 Wherever you go, go with all your heart.
 
 - ⭐ Wisdom has never made a bigot, but learning has.
