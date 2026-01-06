@@ -330,6 +330,7 @@
 - 📌 One may say the eternal mystery of the world is its comprehensibility.
 - 📜 Opportunity does not knock, it presents itself when you beat down the door.
 - 📡 One must be fond of people and trust them if one is not to make a mess of life.
+- 🔔 O, what a tangled web we weave when first we practice to deceive!
 - 🖱️ Our character is what we do when we think no one is looking.
 
 - 🌈 One who gains strength by overcoming obstacles possesses the only strength which can overcome adversity.
