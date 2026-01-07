@@ -492,6 +492,7 @@
 - 🌻 Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values.
 - 🍃 We are wiser than we know.
 - 🍃 We do not quit playing because we grow old, we grow old because we quit playing.
+- 🎁 Walking with a friend in the dark is better than walking alone in the light.
 - 🎆 We must not say every mistake is a foolish one.
 - 🎙️ Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.
 - 🎤 We are masters of the unsaid words, but slaves of those we let slip out.
