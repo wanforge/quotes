@@ -53,6 +53,7 @@
 - 🎼 Be Impeccable with Your Word. Speak with integrity. Say only what you mean. Avoid using the word to speak against yourself or to gossip about others. Use the power of your word in the direction of truth and love.
 - 📍 Baseball is the only field of endeavor where a man can succeed three times out of ten and be considered a good performer.
 - 🕹️ But man is not made for defeat. A man can be destroyed but not defeated.
+- 🥈 Be great in act, as you have been in thought.
 - 🧠 Better be ignorant of a matter than half know it.
 - 🧪 Beware of false knowledge; it is more dangerous than ignorance.
 - 🪕 Bad times have a scientific value. These are occasions a good learner would not miss.
