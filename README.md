@@ -434,6 +434,7 @@
 - 📢 The art challenges the technology, and the technology inspires the art.
 - 📯 There are things so deep and complex that only intuition can reach it in our stage of development as human beings.
 - 📯 Trying to define yourself is like trying to bite your own teeth.
+- 📱 The only limit to our realization of tomorrow will be our doubts of today.
 - 📱 The path to success is to take massive, determined action.
 - 📱 The wisdom of the wise, and the experience of ages, may be preserved by quotation.
 - 📱 Trouble is only opportunity in work clothes.
