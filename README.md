@@ -150,6 +150,7 @@
 - ☀️ If you don't know where you are going, any road will get you there.
 - ☀️ It's easier to resist at the beginning than at the end.
 - ✨ It's so simple to be wise. Just think of something stupid to say and then don't say it.
+- 🌊 I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars.
 - 🌏 Imagination allows us to escape the predictable. It enables us to reply to the common wisdom that we cannot soar by saying, 'Just watch!'
 - 🌝 I'm a great believer in luck and I find the harder I work, the more I have of it.
 - 🌝 It is impossible to love and to be wise.
