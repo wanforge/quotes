@@ -172,6 +172,7 @@
 - 🎁 I'd rather regret the things that I have done than the things that I have not done.
 - 🎆 I walk slowly, but I never walk backward.
 - 🎆 If you do not change direction, you may end up where you are heading.
+- 🎎 I love wisdom. And you can never be great at anything unless you love it. Not be in love with it, but love the thing, admire the thing. And it seems that if you love the thing, and you don't just want to possess it, it will find you.
 - 🎎 I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder.
 - 🎙️ It is a common experience that a problem difficult at night is resolved in the morning after the committee of sleep has worked on it.
 - 🎤 If you spend your whole life waiting for the storm, you'll never enjoy the sunshine.
