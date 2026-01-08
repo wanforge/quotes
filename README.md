@@ -271,6 +271,7 @@
 - 🔋 Life is a travelling to the edge of knowledge, then a leap taken.
 - 🔖 Life is not a problem to be solved, but a reality to be experienced.
 - 🔬 Laws alone can not secure freedom of expression; in order that every man present his views without penalty there must be spirit of tolerance in the entire population.
+- 🔭 Let the beauty of what you love be what you do.
 - 🔭 Let us sacrifice our today so that our children can have a better tomorrow.
 - 🖥️ Love is like a friendship caught on fire. In the beginning a flame, very pretty, often hot and fierce, but still only light and flickering. As love grows older, our hearts mature and our love becomes as coals, deep-burning and unquenchable.
 - 🖱️ Love is the master key that opens the gates of happiness.
