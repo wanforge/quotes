@@ -408,6 +408,7 @@
 - 🌰 The mark of your ignorance is the depth of your belief in injustice and tragedy. What the caterpillar calls the end of the world, the Master calls the butterfly.
 - 🌱 The most I can do for my friend is simply be his friend.
 - 🌻 Tennis is a perfect combination of violent action taking place in an atmosphere of total tranquillity.
+- 🌼 The lure of the distant and the difficult is deceptive. The great opportunity is where you are.
 - 🌼 The superior man is modest in his speech but exceeds in his actions.
 - 🌿 There is no fear for one whose mind is not filled with desires.
 - 🍄 The greatest pleasure I know is to do a good action by stealth, and to have it found out by accident.
