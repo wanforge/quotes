@@ -289,6 +289,7 @@
 - 📱 Meditation brings wisdom, lack of meditation leaves ignorance. Know well what leads you forward and what holds you back and choose the path that leads to wisdom.
 - 🔋 Make it your habit not to be critical about small things.
 - 🔋 My best friend is the one who brings out the best in me.
+- 🔬 Maxim for life: You get treated in life the way you teach people to treat you.
 - 🔭 Man is not sum of what he has already, but rather the sum of what he does not yet have, of what he could have.
 - 🔮 Moral excellence comes about as a result of habit. We become just by doing just acts, temperate by doing temperate acts, brave by doing brave acts.
 - 🖥️ Minds are like parachutes. They only function when open.
