@@ -554,5 +554,6 @@
 - 🔮 You must do the things you think you cannot do.
 - 🧠 You may say I'm a dreamer, but I'm not the only one, I hope someday you will join us, and the world will live as one.
 - 🧩 You don't play against opponents, you play against the game of basketball.
+- 🧲 You've got to go out on a limb sometimes because that's where the fruit is.
 
 - 🎊 You can always count on Americans to do the right thing - after they've tried everything else.
