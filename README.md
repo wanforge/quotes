@@ -474,6 +474,7 @@
 - 🧩 The most precious gift we can offer anyone is our attention. When mindfulness embraces those we love, they will bloom like flowers.
 - 🧬 There is a difference between happiness and wisdom: he that thinks himself the happiest man is really so; but he that thinks himself the wisest is generally the greatest fool.
 - 🧲 The world has the habit of making room for the man whose actions show that he knows where he is going.
+- 🧿 Talent is God given. Be humble. Fame is man-given. Be grateful. Conceit is self-given. Be careful.
 - 🪘 Technology made large populations possible; large populations now make technology indispensable.
 
 - 🖌️ The heart has eyes which the brain knows nothing of.
