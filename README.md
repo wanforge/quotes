@@ -31,6 +31,7 @@
 - 📯 A friend is, as it were, a second self.
 - 📯 A goal without a plan is just a wish.
 - 🔬 All is flux; nothing stays still.
+- 🔮 A single rose can be my garden... a single friend, my world.
 - 🖥️ A friend to all is a friend to none.
 - 🥇 A dream is your creative vision for your life in the future. You must break out of your current comfort zone and become comfortable with the unfamiliar and the unknown.
 - 🥇 Action is the foundational key to all success.
