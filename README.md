@@ -211,6 +211,7 @@
 - 🔥 I don't believe you have to be better than everybody else. I believe you have to be better than you ever thought you could be.
 - 🔬 In friendship as well as love, ignorance very often contributes more to our happiness than knowledge.
 - 🔭 If we did the things we are capable of, we would astound ourselves.
+- 🔮 If you're walking down the right path and you're willing to keep walking, eventually you'll make progress.
 - 🔮 It takes courage to grow up and become who you really are.
 - 🕹️ If you only have a hammer, you tend to see every problem as a nail.
 - 🕹️ It is only with the heart that one can see rightly, what is essential is invisible to the eye.
