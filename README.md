@@ -337,6 +337,7 @@
 - 🎊 Opportunity is missed by most because it is dressed in overalls and looks like work.
 - 🎙️ Of course there is no formula for success except perhaps an unconditional acceptance of life and what it brings.
 - 🎶 Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road.
+- 🏮 One today is worth two tomorrows.
 - 💎 Obstacles are those things you see when you take your eyes off the goal.
 - 📌 One is not called noble who harms living beings. By not harming living beings one is called noble.
 - 📌 One may say the eternal mystery of the world is its comprehensibility.
