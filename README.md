@@ -207,6 +207,7 @@
 - 📜 It is the nature of the wise to resist pleasures, but the foolish to be a slave to them.
 - 📝 If you are bitter, you are like a dry leaf that you can just squash, and you can get blown away by the wind. There is much more wisdom in forgiveness.
 - 📢 I begin with an idea and then it becomes something else.
+- 📢 If you want things to be different, perhaps the answer is to become different yourself.
 - 📯 I don't turn to greeting cards for wisdom and advice, but they are a fine reflection of the general drift of the culture.
 - 🔖 If one does not know to which port one is sailing, no wind is favorable.
 - 🔖 It is unwise to be too sure of one's own wisdom. It is healthy to be reminded that the strongest might weaken and the wisest might err.
