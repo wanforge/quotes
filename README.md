@@ -541,6 +541,7 @@
 - 🧧 When you see a man of worth, think of how you may emulate him. When you see one who is unworthy, examine yourself.
 - 🧨 We must never forget that it is through our actions, words, and thoughts that we have a choice.
 - 🧬 We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre.
+- 🧬 When you judge another, you do not define them, you define yourself.
 - 🧰 We choose our joys and sorrows long before we experience them.
 - 🧰 Wisdom is found only in truth.
 - 🧲 When the world is so complicated, the simple gift of friendship is within all of our hands.
