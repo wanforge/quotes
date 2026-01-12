@@ -517,6 +517,7 @@
 - 🎸 Wherever a man may happen to turn, whatever a man may undertake, he will always end up by returning to the path which nature has marked out for him.
 - 🎹 Wisdom consists of the anticipation of consequences.
 - 🏆 We come to love not by finding a perfect person, but by learning to see an imperfect person perfectly.
+- 🏆 When you doubt your power, you give power to your doubt.
 - 🏆 Wishing to be friends is quick work, but friendship is a slow ripening fruit.
 - 🏮 We are all faced with a series of great opportunities brilliantly disguised as impossible situations.
 - 🏮 When you come to the end of your rope, tie a knot and hang on.
