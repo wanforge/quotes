@@ -329,6 +329,7 @@
 - 🎺 No party has a monopoly on wisdom. No democracy works without compromise.
 
 ## O
+- ✨ Of all the things which wisdom provides to make us entirely happy, much the greatest is the possession of friendship.
 - ⭐ Opportunity often comes disguised in the form of misfortune, or temporary defeat.
 - 🌊 One of the most beautiful qualities of true friendship is to understand and to be understood.
 - 🌛 Once you choose hope, anything's possible.
