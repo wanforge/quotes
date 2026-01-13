@@ -436,6 +436,7 @@
 - 💡 There is no great genius without some touch of madness.
 - 📌 The real problem is not whether machines think but whether men do.
 - 📌 This world, after all our science and sciences, is still a miracle; wonderful, inscrutable, magical and more, to whosoever will think of it.
+- 📍 The moment one gives close attention to anything, it becomes a mysterious, awesome, indescribably magnificent world in itself.
 - 📍 Think as a wise man but communicate in the language of the people.
 - 📜 There is nothing permanent except change.
 - 📝 The greatest minds are capable of the greatest vices as well as of the greatest virtues.
