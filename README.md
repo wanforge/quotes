@@ -315,6 +315,7 @@
 - 🌱 Never idealize others. They will never live up to your expectations.
 - 🌸 Nothing is softer or more flexible than water, yet nothing can resist it.
 - 🌻 Never interrupt someone doing what you said couldn't be done.
+- 🍀 Never give up, for that is just the place and time that the tide will turn.
 - 🎤 Nothing will work unless you do.
 - 🎸 No alibi will save you from accepting the responsibility.
 - 🏮 Never make friends with people who are above or below you in status. Such friendships will never give you any happiness.
