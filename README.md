@@ -53,6 +53,7 @@
 - 🌼 Be the chief but never the lord.
 - 🎶 Belajar adalah harta karun yang akan mengikuti pemiliknya ke mana pun
 - 🎼 Be Impeccable with Your Word. Speak with integrity. Say only what you mean. Avoid using the word to speak against yourself or to gossip about others. Use the power of your word in the direction of truth and love.
+- 🏆 Be true to yourself, help others, make each day your masterpiece, make friendship a fine art, drink deeply from good books - especially the Bible, build a shelter against a rainy day, give thanks for your blessings and pray for guidance every day.
 - 📍 Baseball is the only field of endeavor where a man can succeed three times out of ten and be considered a good performer.
 - 🕹️ But man is not made for defeat. A man can be destroyed but not defeated.
 - 🥈 Be great in act, as you have been in thought.
