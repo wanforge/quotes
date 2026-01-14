@@ -248,6 +248,7 @@
 - 🎶 Just as a mother would protect her only child with her life, even so let one cultivate a boundless love towards all beings.
 
 ## K
+- ✨ Know that although in the eternal scheme of things you are small, you are also unique and irreplaceable, as are all your fellow humans everywhere in the world.
 - ⭐ Kegagalan adalah guru terbaik
 - 🌰 Knowing is not enough; we must apply!
 - 🌱 Kesempatan tidak datang dua kali, raih saat ini juga
