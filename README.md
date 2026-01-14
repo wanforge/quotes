@@ -459,6 +459,7 @@
 - 🔖 The only way to tell the truth is to speak with kindness. Only the words of a loving man can be heard.
 - 🔥 To support mother and father, to cherish partner and children, and to be engaged in peaceful occupation — this is the greatest blessing.
 - 🔬 There are only two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.
+- 🔭 Take up one idea. Make that one idea your life - think of it, dream of it, live on that idea. Let the brain, muscles, nerves, every part of your body, be full of that idea, and just leave every other idea alone. This is the way to success.
 - 🕹️ Technology is nothing. What's important is that you have a faith in people, that they're basically good and smart, and if you give them tools, they'll do wonderful things with them.
 - 🖌️ Time is the most valuable thing a man can spend.
 - 🖌️ True friendship multiplies the good in life and divides its evils. Strive to have friends, for life without friends is like life on a desert island... to find one real friend in a lifetime is good fortune; to keep him is a blessing.
