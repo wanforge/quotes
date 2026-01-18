@@ -537,6 +537,7 @@
 - 📍 Whatever we expect with confidence becomes our own self-fulfilling prophecy.
 - 📜 Wise men make more opportunities than they find.
 - 📝 We must embrace pain and burn it as fuel for our journey.
+- 📯 What is new in the world? Nothing. What is old in the world? Nothing. Everything has always been and will always be.
 - 🔔 When you are offended at any man's fault, turn to yourself and study your own failings. Then you will forget your anger.
 - 🔖 When one tugs at a single thing in nature, he finds it attached to the rest of the world.
 - 🔥 We are either progressing or retrograding all the while. There is no such thing as remaining stationary in this life.
