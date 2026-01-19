@@ -8,6 +8,7 @@
 - 🌠 A lot of people give up just before theyre about to make it. You know you never know when that next obstacle is going to be the last one.
 - 🌠 All our dreams can come true, if we have the courage to pursue them.
 - 🌱 A prudent question is one half of wisdom.
+- 🌻 A true friend is the most precious of all possessions and the one we take the least thought about acquiring.
 - 🍀 A poem begins in delight and ends in wisdom.
 - 🍀 An ant on the move does more than a dozing ox
 - 🍁 A real friend is one who walks in when the rest of the world walks out.
