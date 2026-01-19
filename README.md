@@ -510,6 +510,7 @@
 - ☀️ We the people are the rightful masters of both Congress and the courts, not to overthrow the Constitution but to overthrow the men who pervert the Constitution.
 - ⭐ We don't receive wisdom; we must discover it for ourselves after a journey that no one can take for us or spare us.
 - 🌛 When something is important enough, you do it even if the odds are not in your favor.
+- 🌝 We lost because we told ourselves we lost.
 - 🌝 When I dare to be powerful, to use my strength in the service of my vision, then it becomes less and less important whether I am afraid.
 - 🌞 When your desires are strong enough you will appear to possess superhuman powers to achieve.
 - 🌱 Where all think alike, no one thinks very much.
