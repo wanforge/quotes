@@ -337,6 +337,7 @@
 - 📯 Nothing diminishes anxiety faster than action.
 - 🖱️ Never tell people how to do things. Tell them what to do and they will surprise you with their ingenuity.
 - 🥁 Nothing in life is to be feared. It is only to be understood.
+- 🧬 No one has a finer command of language than the person who keeps his mouth shut.
 
 - 🎺 No party has a monopoly on wisdom. No democracy works without compromise.
 
