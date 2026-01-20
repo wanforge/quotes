@@ -456,6 +456,7 @@
 - 📡 The best cure for the body is a quiet mind.
 - 📢 Technology frightens me to death. It's designed by engineers to impress other engineers. And they always come with instruction booklets that are written by engineers for other engineers — which is why almost no technology ever works.
 - 📢 The art challenges the technology, and the technology inspires the art.
+- 📯 The minute you settle for less than you deserve, you get even less than you settled for.
 - 📯 There are things so deep and complex that only intuition can reach it in our stage of development as human beings.
 - 📯 Trying to define yourself is like trying to bite your own teeth.
 - 📱 The only limit to our realization of tomorrow will be our doubts of today.
