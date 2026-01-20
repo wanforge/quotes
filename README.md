@@ -58,6 +58,7 @@
 - 📍 Baseball is the only field of endeavor where a man can succeed three times out of ten and be considered a good performer.
 - 🕹️ But man is not made for defeat. A man can be destroyed but not defeated.
 - 🥈 Be great in act, as you have been in thought.
+- 🦋 Be slow of tongue and quick of eye.
 - 🧠 Believe in yourself! Have faith in your abilities! Without a humble but reasonable confidence in your own powers you cannot be successful or happy.
 - 🧠 Better be ignorant of a matter than half know it.
 - 🧪 Beware of false knowledge; it is more dangerous than ignorance.
