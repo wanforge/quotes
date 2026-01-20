@@ -108,6 +108,7 @@
 - 🌝 Friendship is like money, easier made than kept.
 - 🌱 Faith in oneself is the best and safest course.
 - 🌱 Freedom is not worth having if it does not connote freedom to err.
+- 🎁 Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots.
 - 🎁 Friendship is one of our most treasured relationships, but it isn't codified and celebrated; it's never going to give you a party.
 - 🎈 Failure doesn't mean you are a failure it just means you haven't succeeded yet.
 - 🎧 Feeling and longing are the motive forces behind all human endeavor and human creations.
