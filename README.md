@@ -263,6 +263,7 @@
 - 📢 Knowledge is knowing that a tomato is a fruit. Wisdom is knowing not to put it in a fruit salad.
 - 🔔 Knowledge comes, but wisdom lingers. It may not be difficult to store up in the mind a vast quantity of facts within a comparatively short time, but the ability to form judgments requires the severe discipline of hard work and the tempering heat of experience and maturity.
 - 🖥️ Keep your eyes on the stars and your feet on the ground.
+- 🧰 Knowledge is going to make you stronger. Knowledge is going to let you control your life. Knowledge is going to give you the wisdom to teach their children. Knowledge is the thing that makes you smile in the face of disaster.
 
 - 🧿 Kebahagiaan datang ketika kita berhenti mengeluh
 - ⭐ Kesederhanaan adalah kecanggihan tertinggi
