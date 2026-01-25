@@ -44,6 +44,7 @@
 - 🧩 A ruffled mind makes a restless pillow.
 - 🧩 Anyone who doesn't take truth seriously in small matters cannot be trusted in large ones either.
 - 🧰 Almost everything comes from nothing.
+- 🪕 A creative man is motivated by the desire to achieve, not by the desire to beat others.
 - 🪘 All this modern technology just makes people try to do everything at once.
 - 🪘 An optimist is a person who sees a green light everywhere, while the pessimist sees only the red spotlight... The truly wise person is color-blind.
 
