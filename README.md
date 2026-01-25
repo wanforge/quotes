@@ -530,6 +530,7 @@
 - 🌻 Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values.
 - 🍃 We are wiser than we know.
 - 🍃 We do not quit playing because we grow old, we grow old because we quit playing.
+- 🍃 We have committed the Golden Rule to memory; let us now commit it to life.
 - 🎁 Walking with a friend in the dark is better than walking alone in the light.
 - 🎆 We must not say every mistake is a foolish one.
 - 🎙️ Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.
