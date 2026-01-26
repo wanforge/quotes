@@ -403,6 +403,7 @@
 - 🌸 Some people go to priests; others to poetry; I to my friends.
 - 🍀 Sports do not build character. They reveal it.
 - 🍃 Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful.
+- 🍄 Success is getting what you want. Happiness is wanting what you get.
 - 💡 Success is where preparation and opportunity meet.
 - 💻 Success in business requires training and discipline and hard work. But if you're not frightened by these things, the opportunities are just as great today as they ever were.
 - 🔖 Stay committed to your decisions, but stay flexible in your approach.
