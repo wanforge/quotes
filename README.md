@@ -369,6 +369,7 @@
 - 📡 One must be fond of people and trust them if one is not to make a mess of life.
 - 🔔 O, what a tangled web we weave when first we practice to deceive!
 - 🖱️ Our character is what we do when we think no one is looking.
+- 🧧 One fails forward toward success.
 
 - 🌈 One who gains strength by overcoming obstacles possesses the only strength which can overcome adversity.
 
