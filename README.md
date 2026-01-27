@@ -20,6 +20,7 @@
 - 🎙️ All phenomena are preceded by the mind, created by the mind, and have the mind as their master.
 - 🎤 A failure is a man who has blundered but is not capable of cashing in on the experience.
 - 🎤 An organization, no matter how well designed, is only as good as the people who live and work in it.
+- 🎨 A hero is no braver than an ordinary man, but he is braver five minutes longer.
 - 🎶 Autumn is a second spring when every leaf is a flower.
 - 🎷 Age does not protect you from love. But love, to some extent, protects you from age.
 - 🎸 A good decision is based on knowledge and not on numbers.
