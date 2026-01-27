@@ -266,6 +266,7 @@
 - ✨ Know that although in the eternal scheme of things you are small, you are also unique and irreplaceable, as are all your fellow humans everywhere in the world.
 - ⭐ Kegagalan adalah guru terbaik
 - 🌏 Keep me away from the wisdom which does not cry, the philosophy which does not laugh and the greatness which does not bow before children.
+- 🌛 Knowledge is proud that it knows so much; wisdom is humble that it knows no more.
 - 🌰 Knowing is not enough; we must apply!
 - 🌱 Kesempatan tidak datang dua kali, raih saat ini juga
 - 🎊 Kindness is more important than wisdom, and the recognition of this is the beginning of wisdom.
