@@ -201,6 +201,7 @@
 - 🎷 If you were to offer a thirsty man all wisdom, you would not please him more than if you gave him a drink.
 - 🎷 In the business world, the rearview mirror is always clearer than the windshield.
 - 🎺 I've missed more than 9000 shots in my career. I've lost almost 300 games. 26 times, I've been trusted to take the game winning shot and missed. I've failed over and over and over again in my life. And that is why I succeed.
+- 🎼 If a man does his best, what else is there?
 - 🎼 If there is no struggle, there is no progress.
 - 🏆 I am an optimist. It does not seem too much use being anything else.
 - 💎 I do not know the American gentleman, god forgive me for putting two such words together.
