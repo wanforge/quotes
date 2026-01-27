@@ -9,6 +9,7 @@
 - 🌠 All our dreams can come true, if we have the courage to pursue them.
 - 🌱 A prudent question is one half of wisdom.
 - 🌻 A true friend is the most precious of all possessions and the one we take the least thought about acquiring.
+- 🌼 Always keep an open mind and a compassionate heart.
 - 🍀 A poem begins in delight and ends in wisdom.
 - 🍀 An ant on the move does more than a dozing ox
 - 🍁 A real friend is one who walks in when the rest of the world walks out.
