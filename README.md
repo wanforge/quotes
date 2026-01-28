@@ -586,6 +586,7 @@
 - 🧰 We choose our joys and sorrows long before we experience them.
 - 🧰 Wisdom is found only in truth.
 - 🧲 When the world is so complicated, the simple gift of friendship is within all of our hands.
+- 🧿 We respect our elders. There is wisdom that comes from experience, and I am not going to stop learning from wise counsel.
 - 🪘 Wherever you go, go with all your heart.
 
 - ⭐ Wisdom has never made a bigot, but learning has.
