@@ -226,6 +226,7 @@
 - 📢 If you want things to be different, perhaps the answer is to become different yourself.
 - 📯 I don't turn to greeting cards for wisdom and advice, but they are a fine reflection of the general drift of the culture.
 - 🔖 If one does not know to which port one is sailing, no wind is favorable.
+- 🔖 It is the neglect of timely repair that makes rebuilding necessary.
 - 🔖 It is unwise to be too sure of one's own wisdom. It is healthy to be reminded that the strongest might weaken and the wisest might err.
 - 🔥 I don't believe you have to be better than everybody else. I believe you have to be better than you ever thought you could be.
 - 🔬 In friendship as well as love, ignorance very often contributes more to our happiness than knowledge.
