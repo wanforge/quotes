@@ -444,6 +444,7 @@
 - 🌏 The more man meditates upon good thoughts, the better will be his world and the world at large.
 - 🌏 There is only one corner of the universe you can be certain of improving, and that's your own self.
 - 🌝 There is not one big cosmic meaning for all, there is only the meaning we each give to our life.
+- 🌠 The awareness of our own strength makes us modest.
 - 🌠 The ultimate promise of technology is to make us master of a world that we command by the push of a button.
 - 🌠 To keep your secret is wisdom; but to expect others to keep it is folly.
 - 🌰 The mark of your ignorance is the depth of your belief in injustice and tragedy. What the caterpillar calls the end of the world, the Master calls the butterfly.
