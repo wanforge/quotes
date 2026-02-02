@@ -467,6 +467,7 @@
 - 🏆 Truth, and goodness, and beauty are but different faces of the same all.
 - 💡 The key is to keep company only with people who uplift you, whose presence calls forth your best.
 - 💡 There is no great genius without some touch of madness.
+- 💡 To be able to give away riches is mandatory if you wish to possess them. This is the only way that you will be truly rich.
 - 📌 The real problem is not whether machines think but whether men do.
 - 📌 This world, after all our science and sciences, is still a miracle; wonderful, inscrutable, magical and more, to whosoever will think of it.
 - 📍 The moment one gives close attention to anything, it becomes a mysterious, awesome, indescribably magnificent world in itself.
