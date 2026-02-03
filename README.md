@@ -150,6 +150,7 @@
 - 🌼 History is written by the victors.
 - 🎆 How far that little candle throws its beams! So shines a good deed in a naughty world.
 - 🎵 He has no enemies, but is intensely disliked by his friends.
+- 🎶 Happiness mainly comes from our own attitude, rather than from external factors.
 - 🎺 How many cares one loses when one decides not to be something but to be someone.
 - 📱 Happiness is as a butterfly which, when pursued, is always beyond our grasp, but which if you will sit down quietly, may alight upon you.
 - 📱 History will be kind to me for I intend to write it.
