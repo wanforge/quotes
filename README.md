@@ -458,6 +458,7 @@
 - 🌻 Tennis is a perfect combination of violent action taking place in an atmosphere of total tranquillity.
 - 🌼 The lure of the distant and the difficult is deceptive. The great opportunity is where you are.
 - 🌼 The superior man is modest in his speech but exceeds in his actions.
+- 🌼 There is a wisdom of the head, and a wisdom of the heart.
 - 🌿 There is no fear for one whose mind is not filled with desires.
 - 🍀 TV and the Internet are good because they keep stupid people from spending too much time out in public.
 - 🍄 The greatest pleasure I know is to do a good action by stealth, and to have it found out by accident.
