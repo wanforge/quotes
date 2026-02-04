@@ -587,6 +587,7 @@
 - 🥁 We live in a society bloated with data yet starved for wisdom. We're connected 24/7, yet anxiety, fear, depression and loneliness are at an all-time high. We must course-correct.
 - 🥁 When one door of happiness closes, another opens; but often we look so long at the closed door that we do not see the one which has been opened for us.
 - 🥉 With age comes wisdom and a high sex drive. And the wisdom to enjoy it.
+- 🧠 We never live; we are always in the expectation of living.
 - 🧠 Whenever you find yourself on the side of the majority, it is time to pause and reflect.
 - 🧧 When you see a man of worth, think of how you may emulate him. When you see one who is unworthy, examine yourself.
 - 🧨 We are all something, but none of us are everything.
