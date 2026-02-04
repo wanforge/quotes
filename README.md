@@ -348,6 +348,7 @@
 - 🌻 Never interrupt someone doing what you said couldn't be done.
 - 🍀 Never give up, for that is just the place and time that the tide will turn.
 - 🎤 Nothing will work unless you do.
+- 🎯 Nothing great was ever achieved without enthusiasm.
 - 🎸 No alibi will save you from accepting the responsibility.
 - 🏮 Never make friends with people who are above or below you in status. Such friendships will never give you any happiness.
 - 🏮 No act of kindness, no matter how small, is ever wasted.
