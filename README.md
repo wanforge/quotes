@@ -36,6 +36,7 @@
 - 📯 A friend is, as it were, a second self.
 - 📯 A goal without a plan is just a wish.
 - 🔔 A really great talent finds its happiness in execution.
+- 🔔 Arriving at one point is the starting point to another.
 - 🔬 All is flux; nothing stays still.
 - 🔮 A single rose can be my garden... a single friend, my world.
 - 🖥️ A friend to all is a friend to none.
