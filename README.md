@@ -347,6 +347,7 @@
 - 🌸 Nothing is softer or more flexible than water, yet nothing can resist it.
 - 🌻 Never interrupt someone doing what you said couldn't be done.
 - 🍀 Never give up, for that is just the place and time that the tide will turn.
+- 🎉 No one is useless in this world who lightens the burdens of another.
 - 🎤 Nothing will work unless you do.
 - 🎯 Nothing great was ever achieved without enthusiasm.
 - 🎸 No alibi will save you from accepting the responsibility.
