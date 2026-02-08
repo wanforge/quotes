@@ -309,6 +309,7 @@
 - 🔋 Life is a travelling to the edge of knowledge, then a leap taken.
 - 🔖 Life is not a problem to be solved, but a reality to be experienced.
 - 🔬 Laws alone can not secure freedom of expression; in order that every man present his views without penalty there must be spirit of tolerance in the entire population.
+- 🔬 Love is a friendship set to music.
 - 🔭 Let the beauty of what you love be what you do.
 - 🔭 Let us sacrifice our today so that our children can have a better tomorrow.
 - 🖌️ Lose an hour in the morning, and you will spend all day looking for it.
