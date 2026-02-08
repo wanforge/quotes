@@ -382,6 +382,7 @@
 - 🎶 Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road.
 - 🏮 One today is worth two tomorrows.
 - 💎 Obstacles are those things you see when you take your eyes off the goal.
+- 💡 Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.
 - 📌 One is not called noble who harms living beings. By not harming living beings one is called noble.
 - 📌 One may say the eternal mystery of the world is its comprehensibility.
 - 📜 Opportunity does not knock, it presents itself when you beat down the door.
