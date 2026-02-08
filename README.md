@@ -475,6 +475,7 @@
 - 🎙️ The way we communicate with others and with ourselves ultimately determines the quality of our lives.
 - 🎤 Technological progress has merely provided us with more efficient means for going backwards.
 - 🎤 To be wrong is nothing unless you continue to remember it.
+- 🎺 The only true wisdom is in knowing you know nothing.
 - 🎺 The secret of success is constancy to purpose.
 - 🎼 Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose.
 - 🏆 Truth, and goodness, and beauty are but different faces of the same all.
