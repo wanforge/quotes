@@ -326,6 +326,7 @@
 - 🎹 Let go of your attachment to being right, and suddenly your mind is more open. You're able to benefit from the unique viewpoints of others, without being crippled by your own judgement.
 
 ## M
+- ⚡ Music in the soul can be heard by the universe.
 - 🌈 Memory is the mother of all wisdom.
 - 🌼 Mistakes are the usual bridge between inexperience and wisdom.
 - 🎈 Make the best use of what is in your power and take the rest as it happens.
