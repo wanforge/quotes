@@ -477,6 +477,7 @@
 - 🎈 To bring anything into your life, imagine that it's already there.
 - 🎙️ The way we communicate with others and with ourselves ultimately determines the quality of our lives.
 - 🎤 Technological progress has merely provided us with more efficient means for going backwards.
+- 🎤 There are three classes of men; lovers of wisdom, lovers of honor, and lovers of gain.
 - 🎤 To be wrong is nothing unless you continue to remember it.
 - 🎺 The only true wisdom is in knowing you know nothing.
 - 🎺 The secret of success is constancy to purpose.
