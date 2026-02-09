@@ -93,6 +93,7 @@
 - 🌻 Discovery consists of seeing what everybody has seen and thinking what nobody else has thought.
 - 🎁 Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict.
 - 🎎 Don't judge each day by the harvest you reap but by the seeds that you plant.
+- 📝 Dost thou love life? Then do not squander time, for that is the stuff life is made of.
 - 📢 Do not scorn what you have received, nor envy the gains of others. He who envies others does not obtain peace of mind.
 - 🔥 Do all things with love.
 - 🥁 Do not be embarrassed by your mistakes. Nothing can teach us better than our understanding of them. This is one of the best ways of self-education.
