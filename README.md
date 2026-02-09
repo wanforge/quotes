@@ -78,6 +78,7 @@
 
 ## C
 - 🌊 Courage is not the absence of fear, but simply moving on with dignity despite that fear.
+- 🌿 Change your life today. Don't gamble on the future, act now, without delay.
 - 🍂 Can you imagine what I would do if I could do all I can?
 - 🍃 Can miles truly separate you from friends... If you want to be with someone you love, aren't you already there?
 - 🎵 Conditions fall apart. Persist with diligence.
