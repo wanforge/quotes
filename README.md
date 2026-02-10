@@ -324,6 +324,7 @@
 - 🖱️ Love is the master key that opens the gates of happiness.
 - 🥈 Life a culmination of the past, an awareness of the present, an indication of the future beyond knowledge, the quality that gives a touch of divinity to matter.
 - 🧠 Learn from yesterday, live for today, hope for tomorrow.
+- 🧰 Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are.
 
 - 🎹 Let go of your attachment to being right, and suddenly your mind is more open. You're able to benefit from the unique viewpoints of others, without being crippled by your own judgement.
 
