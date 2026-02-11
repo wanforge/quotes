@@ -458,6 +458,7 @@
 - ⚡ To lead people walk behind them.
 - ✨ The free man is he who does not fear to go to the end of his thought.
 - ✨ The less effort, the faster and more powerful you will be.
+- ✨ There is nothing impossible to him who will try.
 - ✨ To hell with circumstances, I create opportunities.
 - ⭐ This is the final test of a gentleman: his respect for those who can be of no possible value to him.
 - 🌈 The real danger is not that computers will begin to think like men, but that men will begin to think like computers.
