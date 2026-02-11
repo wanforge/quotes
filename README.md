@@ -578,6 +578,7 @@
 - 🎁 Walking with a friend in the dark is better than walking alone in the light.
 - 🎆 We must not say every mistake is a foolish one.
 - 🎊 We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started.
+- 🎙️ What is necessary to change a person is to change his awareness of himself.
 - 🎙️ Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.
 - 🎤 We are masters of the unsaid words, but slaves of those we let slip out.
 - 🎤 Whatever is not yours: let go of it. Your letting go of it will be for your long-term happiness & benefit.
