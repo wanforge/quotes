@@ -609,6 +609,7 @@
 - 🔬 When a friend is in trouble, don't annoy him by asking if there is anything you can do. Think up something appropriate and do it.
 - 🔬 When you realize there is nothing lacking, the whole world belongs to you.
 - 🚀 We are made wise not by the recollection of our past, but by the responsibility for our future.
+- 🛠️ What do we live for, if it is not to make life less difficult for each other?
 - 🥁 We have two ears and one mouth so that we can listen twice as much as we speak.
 - 🥁 We live in a society bloated with data yet starved for wisdom. We're connected 24/7, yet anxiety, fear, depression and loneliness are at an all-time high. We must course-correct.
 - 🥁 When one door of happiness closes, another opens; but often we look so long at the closed door that we do not see the one which has been opened for us.
