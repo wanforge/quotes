@@ -134,6 +134,7 @@
 - 📯 Friendship with oneself is all important because without it one cannot be friends with anybody else in the world.
 - 📱 Friendships are the family we make - not the one we inherit. I've always been someone to whom friendship, elective affinities, is as important as family.
 - 🛠️ Follow your instincts. That is where true wisdom manifests itself.
+- 🧲 For it was not into my ear you whispered, but into my heart. It was not my lips you kissed, but my soul.
 - 🧿 Friends are the siblings God never gave us.
 - 🪔 Faith, as well intentioned as it may be, must be built on facts, not fiction--faith in fiction is a damnable false hope.
 
