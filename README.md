@@ -148,6 +148,7 @@
 - 🌱 Gratitude is not only the greatest of virtues, but the parent of all the others.
 - 🌸 Good actions give strength to ourselves and inspire good actions in others.
 - 🌿 Genuine sincerity opens people's hearts, while manipulation causes them to close.
+- 📌 Gratitude is riches. Complaint is poverty.
 - 🖌️ Golf is a game in which one endeavors to control a ball with implements ill adapted for the purpose.
 - 🛠️ Gold medals aren't really made of gold. They're made of sweat, determination, and a hard-to-find alloy called guts.
 
