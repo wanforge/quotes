@@ -471,6 +471,7 @@
 - 🌊 The secret of business is to know something that nobody else knows.
 - 🌊 To see things in the seed, that is genius.
 - 🌏 The more man meditates upon good thoughts, the better will be his world and the world at large.
+- 🌏 The universe is made of stories, not atoms.
 - 🌏 There is only one corner of the universe you can be certain of improving, and that's your own self.
 - 🌝 There is not one big cosmic meaning for all, there is only the meaning we each give to our life.
 - 🌠 The awareness of our own strength makes us modest.
