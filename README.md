@@ -295,6 +295,7 @@
 - 🎊 Knowledge is of no value unless you put it into practice.
 - 💎 Kind words can be short and easy to speak, but their echoes are truly endless.
 - 📍 Keep yourself to the sunshine and you cannot see the shadow.
+- 📢 Knowing your own darkness is the best method for dealing with the darkness of other people.
 - 📢 Knowledge is knowing that a tomato is a fruit. Wisdom is knowing not to put it in a fruit salad.
 - 🔔 Knowledge comes, but wisdom lingers. It may not be difficult to store up in the mind a vast quantity of facts within a comparatively short time, but the ability to form judgments requires the severe discipline of hard work and the tempering heat of experience and maturity.
 - 🖥️ Keep your eyes on the stars and your feet on the ground.
