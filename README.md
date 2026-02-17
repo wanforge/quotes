@@ -410,6 +410,7 @@
 - 📜 Opportunity does not knock, it presents itself when you beat down the door.
 - 📡 One must be fond of people and trust them if one is not to make a mess of life.
 - 🔔 O, what a tangled web we weave when first we practice to deceive!
+- 🕹️ One's philosophy is not best expressed in words; it is expressed in the choices one makes... and the choices we make are ultimately our responsibility.
 - 🖱️ Our character is what we do when we think no one is looking.
 - 🧧 One fails forward toward success.
 
