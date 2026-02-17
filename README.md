@@ -345,6 +345,7 @@
 - 🏆 Most of the shadows of life are caused by standing in our own sunshine.
 - 📌 Men are disturbed not by things, but by the view which they take of them.
 - 📍 Mistakes are always forgivable, if one has the courage to admit them.
+- 📚 Make the most of yourself, for that is all there is of you.
 - 📱 Meditation brings wisdom, lack of meditation leaves ignorance. Know well what leads you forward and what holds you back and choose the path that leads to wisdom.
 - 🔋 Make it your habit not to be critical about small things.
 - 🔋 My best friend is the one who brings out the best in me.
