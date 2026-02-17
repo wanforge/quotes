@@ -343,6 +343,7 @@
 - 🎈 Most great people have attained their greatest success just one step beyond their greatest failure.
 - 🎤 Music is a higher revelation than all wisdom and philosophy.
 - 🎼 Much wisdom often goes with fewest words.
+- 🏅 Most folks are as happy as they make up their minds to be.
 - 🏆 Most of the shadows of life are caused by standing in our own sunshine.
 - 📌 Men are disturbed not by things, but by the view which they take of them.
 - 📍 Mistakes are always forgivable, if one has the courage to admit them.
