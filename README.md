@@ -243,6 +243,7 @@
 - 📢 If you want things to be different, perhaps the answer is to become different yourself.
 - 📯 I don't turn to greeting cards for wisdom and advice, but they are a fine reflection of the general drift of the culture.
 - 📯 I never think of the future - it comes soon enough.
+- 📱 It is with our passions, as it is with fire and water, they are good servants but bad masters.
 - 🔖 If one does not know to which port one is sailing, no wind is favorable.
 - 🔖 It is the neglect of timely repair that makes rebuilding necessary.
 - 🔖 It is unwise to be too sure of one's own wisdom. It is healthy to be reminded that the strongest might weaken and the wisest might err.
