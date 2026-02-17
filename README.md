@@ -59,6 +59,7 @@
 - ☀️ Beware of missing chances; otherwise it may be altogether too late someday.
 - 🌟 Believe deep down in your heart that you're destined to do great things.
 - 🌼 Be the chief but never the lord.
+- 🎎 By oneself is evil done; by oneself is one defiled. By oneself is evil left undone; by oneself is one made pure.
 - 🎶 Belajar adalah harta karun yang akan mengikuti pemiliknya ke mana pun
 - 🎼 Be Impeccable with Your Word. Speak with integrity. Say only what you mean. Avoid using the word to speak against yourself or to gossip about others. Use the power of your word in the direction of truth and love.
 - 🏆 Be true to yourself, help others, make each day your masterpiece, make friendship a fine art, drink deeply from good books - especially the Bible, build a shelter against a rainy day, give thanks for your blessings and pray for guidance every day.
