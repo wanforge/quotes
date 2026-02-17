@@ -490,6 +490,7 @@
 - 🌼 There is a wisdom of the head, and a wisdom of the heart.
 - 🌿 There is no fear for one whose mind is not filled with desires.
 - 🍀 TV and the Internet are good because they keep stupid people from spending too much time out in public.
+- 🍄 The Universal Zulu Nation stands to acknowledge wisdom, understanding, freedom, justice, and equality, peace, unity, love, and having fun, work, overcoming the negative through the positive, science, mathematics, faith, facts, and the wonders of God, whether we call him Allah, Jehovah, Yahweh, or Jah.
 - 🍄 The greatest pleasure I know is to do a good action by stealth, and to have it found out by accident.
 - 🍄 The price of greatness is responsibility.
 - 🍄 The smallest flower is a thought, a life answering to some feature of the Great Whole, of whom they have a persistent intuition.
