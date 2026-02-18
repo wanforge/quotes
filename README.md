@@ -129,6 +129,7 @@
 - 🎙️ Freedom is the right to live as we wish.
 - 🎧 Feeling and longing are the motive forces behind all human endeavor and human creations.
 - 🎵 Formula for success: under promise and over deliver.
+- 🎷 Fears are nothing more than a state of mind.
 - 🎼 Friendship with oneself is all important, because without it one cannot be friends with anyone else in the world.
 - 💎 Focusing your life solely on making a buck shows a poverty of ambition. It asks too little of yourself. And it will leave you unfulfilled.
 - 📍 Friendship is an arrangement by which we undertake to exchange small favors for big ones.
