@@ -591,6 +591,7 @@
 - 🌞 Work while you have the light. You are responsible for the talent that has been entrusted to you.
 - 🌱 We should not give up and we should not allow the problem to defeat us.
 - 🌱 Where all think alike, no one thinks very much.
+- 🌱 Where there is great love, there are always miracles.
 - 🌻 Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values.
 - 🍀 What wisdom can you find that is greater than kindness?
 - 🍃 We are wiser than we know.
