@@ -591,6 +591,7 @@
 - 🌱 We should not give up and we should not allow the problem to defeat us.
 - 🌱 Where all think alike, no one thinks very much.
 - 🌻 Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values.
+- 🍀 What wisdom can you find that is greater than kindness?
 - 🍃 We are wiser than we know.
 - 🍃 We do not quit playing because we grow old, we grow old because we quit playing.
 - 🍃 We have committed the Golden Rule to memory; let us now commit it to life.
