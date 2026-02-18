@@ -174,6 +174,7 @@
 - 🥈 Happiness resides not in possessions, and not in gold, happiness dwells in the soul.
 - 🥉 Hope arouses, as nothing else can arouse, a passion for the possible.
 - 🦋 Happiness is found in doing, not merely possessing.
+- 🧬 He is no fool who gives what he cannot keep to gain what he cannot lose.
 - 🪘 Happiness does not come from doing easy work but from the afterglow of satisfaction that comes after the achievement of a difficult task that demanded our best.
 
 - 🌰 He who hath many friends hath none.
