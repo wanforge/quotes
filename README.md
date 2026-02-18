@@ -484,6 +484,7 @@
 - 🌏 The universe is made of stories, not atoms.
 - 🌏 There is only one corner of the universe you can be certain of improving, and that's your own self.
 - 🌝 There is not one big cosmic meaning for all, there is only the meaning we each give to our life.
+- 🌟 The world cares very little about what a man or woman knows; it is what a man or woman is able to do that counts.
 - 🌟 To have faith is to trust yourself to the water. When you swim you don't grab hold of the water, because if you do you will sink and drown. Instead you relax, and float.
 - 🌠 The awareness of our own strength makes us modest.
 - 🌠 The ultimate promise of technology is to make us master of a world that we command by the push of a button.
