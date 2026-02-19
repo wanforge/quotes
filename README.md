@@ -119,6 +119,7 @@
 ## F
 - ☀️ Few people are capable of expressing with equanimity opinions which differ from the prejudices of their social environment. Most people are even incapable of forming such opinions.
 - ☀️ Friendship is a very taxing and arduous form of leisure activity.
+- ⚡ Friends show their love in times of trouble, not in happiness.
 - 🌈 Friendship improves happiness and abates misery, by the doubling of our joy and the dividing of our grief.
 - 🌛 Failure will never overtake me if my determination to succeed is strong enough.
 - 🌝 Friendship is like money, easier made than kept.
