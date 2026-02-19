@@ -326,6 +326,7 @@
 - 💻 Love cures people - both the ones who give it and the ones who receive it.
 - 📌 Life is movement-we breathe, we eat, we walk, we move!
 - 📝 Learning without reflection is a waste, reflection without learning is dangerous.
+- 📢 Life is just a chance to grow a soul.
 - 🔋 Life is a travelling to the edge of knowledge, then a leap taken.
 - 🔖 Life is not a problem to be solved, but a reality to be experienced.
 - 🔬 Laws alone can not secure freedom of expression; in order that every man present his views without penalty there must be spirit of tolerance in the entire population.
