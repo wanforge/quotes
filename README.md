@@ -17,6 +17,7 @@
 - 🎆 All truths are easy to understand once they are discovered; the point is to discover them.
 - 🎈 A quarrel between friends, when made up, adds a new tie to friendship.
 - 🎈 An ounce of emotion is equal to a ton of facts.
+- 🎈 Appearances are often deceiving.
 - 🎉 All our knowledge has its origins in our perceptions.
 - 🎙️ All phenomena are preceded by the mind, created by the mind, and have the mind as their master.
 - 🎤 A failure is a man who has blundered but is not capable of cashing in on the experience.
