@@ -24,6 +24,7 @@
 - 🎤 A failure is a man who has blundered but is not capable of cashing in on the experience.
 - 🎤 An organization, no matter how well designed, is only as good as the people who live and work in it.
 - 🎨 A hero is no braver than an ordinary man, but he is braver five minutes longer.
+- 🎵 Accept the things to which fate binds you and love the people with whom fate brings you together but do so with all your heart.
 - 🎶 Autumn is a second spring when every leaf is a flower.
 - 🎷 Age does not protect you from love. But love, to some extent, protects you from age.
 - 🎸 A good decision is based on knowledge and not on numbers.
