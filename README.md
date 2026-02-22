@@ -170,6 +170,7 @@
 - 🎵 He has no enemies, but is intensely disliked by his friends.
 - 🎶 Happiness mainly comes from our own attitude, rather than from external factors.
 - 🎺 How many cares one loses when one decides not to be something but to be someone.
+- 🎼 He who lives in harmony with himself lives in harmony with the universe.
 - 💻 He that respects himself is safe from others; he wears a coat of mail that none can pierce.
 - 📱 Happiness is as a butterfly which, when pursued, is always beyond our grasp, but which if you will sit down quietly, may alight upon you.
 - 📱 History will be kind to me for I intend to write it.
