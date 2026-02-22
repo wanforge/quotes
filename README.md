@@ -257,6 +257,7 @@
 - 🔖 It is the neglect of timely repair that makes rebuilding necessary.
 - 🔖 It is unwise to be too sure of one's own wisdom. It is healthy to be reminded that the strongest might weaken and the wisest might err.
 - 🔥 I don't believe you have to be better than everybody else. I believe you have to be better than you ever thought you could be.
+- 🔬 If you have knowledge, let others light their candles in it.
 - 🔬 In friendship as well as love, ignorance very often contributes more to our happiness than knowledge.
 - 🔭 If we did the things we are capable of, we would astound ourselves.
 - 🔮 If you're walking down the right path and you're willing to keep walking, eventually you'll make progress.
