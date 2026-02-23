@@ -110,6 +110,7 @@
 ## E
 - ✨ Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.
 - 🌠 Every artist dips his brush in his own soul, and paints his own nature into his pictures.
+- 🍄 Everything that irritates us about others can lead us to an understanding of ourselves.
 - 🎊 Every man takes the limits of his own field of vision for the limits of the world.
 - 🎷 Even if you're on the right track, you'll get run over if you just sit there.
 - 📌 Each misfortune you encounter will carry in it the seed of tomorrows good luck.
