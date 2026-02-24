@@ -234,6 +234,7 @@
 - 🎼 If a man does his best, what else is there?
 - 🎼 If there is no struggle, there is no progress.
 - 🏆 I am an optimist. It does not seem too much use being anything else.
+- 🏆 If you want to kill any idea in the world, get a committee working on it.
 - 💎 I do not know the American gentleman, god forgive me for putting two such words together.
 - 💡 If you aren't going all the way, why go at all?
 - 💡 Irrigators channel waters; fletchers straighten arrows; carpenters bend wood; the wise master themselves.
