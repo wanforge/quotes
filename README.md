@@ -596,6 +596,7 @@
 ## W
 - ☀️ We the people are the rightful masters of both Congress and the courts, not to overthrow the Constitution but to overthrow the men who pervert the Constitution.
 - ⭐ We don't receive wisdom; we must discover it for ourselves after a journey that no one can take for us or spare us.
+- ⭐ When you see a good person, think of becoming like him. When you see someone not so good, reflect on your own weak points.
 - 🌊 What you do today can improve all your tomorrows.
 - 🌛 When something is important enough, you do it even if the odds are not in your favor.
 - 🌝 We lost because we told ourselves we lost.
