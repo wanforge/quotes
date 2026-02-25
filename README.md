@@ -521,6 +521,7 @@
 - 🎤 Technological progress has merely provided us with more efficient means for going backwards.
 - 🎤 There are three classes of men; lovers of wisdom, lovers of honor, and lovers of gain.
 - 🎤 To be wrong is nothing unless you continue to remember it.
+- 🎷 The most complicated achievements of thought are possible without the assistance of consciousness.
 - 🎺 The only true wisdom is in knowing you know nothing.
 - 🎺 The secret of success is constancy to purpose.
 - 🎼 Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose.
