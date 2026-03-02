@@ -206,6 +206,7 @@
 - 🌱 In skating over thin ice our safety is in our speed.
 - 🌱 It is not so important to know everything as to appreciate what we learn.
 - 🌻 In all things of nature there is something of the marvelous.
+- 🌼 I can't imagine a person becoming a success who doesn't give this game of life everything he's got.
 - 🌼 If you're trying to create a company, it's like baking a cake. You have to have all the ingredients in the right proportion.
 - 🌿 I will prepare and some day my chance will come.
 - 🌿 If we could learn to like ourselves, even a little, maybe our cruelties and angers might melt away.
