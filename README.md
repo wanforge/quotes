@@ -679,6 +679,7 @@
 - 🎶 You should ignore that person’s impure behavior by way of speech and body, and focus on the fact that they get an openness and clarity of heart from time to time. That’s how to get rid of resentment for that person.
 - 🎸 You can't stop the waves, but you can learn to surf.
 - 🎸 You win the victory when you yield to friends.
+- 🎹 You yourself must strive. The Buddhas only point the way.
 - 💻 You can fool all the people some of the time, and some of the people all the time, but you cannot fool all the people all the time.
 - 🔋 You spend a good piece of your life gripping a baseball and in the end it turns out that it was the other way around all the time.
 - 🔬 You need chaos in your soul to give birth to a dancing star.
