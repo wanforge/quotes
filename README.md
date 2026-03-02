@@ -675,6 +675,7 @@
 - 🎤 You cannot be lonely if you like the person you're alone with.
 - 🎧 You can only grow if you're willing to feel awkward and uncomfortable when you try something new.
 - 🎯 You cannot escape the responsibility of tomorrow by evading it today.
+- 🎶 You can tell whether a man is clever by his answers. You can tell whether a man is wise by his questions.
 - 🎶 You should ignore that person’s impure behavior by way of speech and body, and focus on the fact that they get an openness and clarity of heart from time to time. That’s how to get rid of resentment for that person.
 - 🎸 You can't stop the waves, but you can learn to surf.
 - 🎸 You win the victory when you yield to friends.
