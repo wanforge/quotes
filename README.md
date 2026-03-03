@@ -520,6 +520,7 @@
 - 🎁 The world makes way for the man who knows where he is going.
 - 🎈 The possibilities are numerous once we decide to act and not react.
 - 🎈 To bring anything into your life, imagine that it's already there.
+- 🎎 The most important thing is transforming our minds, for a new way of thinking, a new outlook: we should strive to develop a new inner world.
 - 🎙️ The time to repair the roof is when the sun is shining.
 - 🎙️ The way we communicate with others and with ourselves ultimately determines the quality of our lives.
 - 🎤 Technological progress has merely provided us with more efficient means for going backwards.
