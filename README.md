@@ -384,6 +384,7 @@
 - ⚡ Not every difficult and dangerous thing is suitable for training, but only that which is conducive to success in achieving the object of our effort.
 - 🌈 No work or love will flourish out of guilt, fear, or hollowness of heart, just as no valid plans for the future can be made by those who have no capacity for living now.
 - 🌛 No one can make you feel inferior without your consent.
+- 🌞 Not all those who wander are lost.
 - 🌱 Never idealize others. They will never live up to your expectations.
 - 🌸 Nothing is softer or more flexible than water, yet nothing can resist it.
 - 🌻 Never interrupt someone doing what you said couldn't be done.
