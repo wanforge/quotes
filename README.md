@@ -46,6 +46,7 @@
 - 🥇 A dream is your creative vision for your life in the future. You must break out of your current comfort zone and become comfortable with the unfamiliar and the unknown.
 - 🥇 Action is the foundational key to all success.
 - 🦋 A day of worry is more exhausting than a day of work.
+- 🦋 Argue for your limitations, and sure enough they're yours.
 - 🦾 All of our technology is completely unnecessary to a happy life.
 - 🦾 Anything you really want, you can attain, if you really go after it.
 - 🧠 Anybody can make history. Only a great man can write it.
