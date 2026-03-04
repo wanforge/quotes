@@ -410,6 +410,7 @@
 ## O
 - ✨ Of all the things which wisdom provides to make us entirely happy, much the greatest is the possession of friendship.
 - ⭐ Opportunity often comes disguised in the form of misfortune, or temporary defeat.
+- 🌈 Of all possessions a friend is the most precious.
 - 🌊 One of the most beautiful qualities of true friendship is to understand and to be understood.
 - 🌛 Once you choose hope, anything's possible.
 - 🌠 Once you label me you negate me.
