@@ -1,6 +1,7 @@
 # Quotes
 
 ## A
+- ⌨️ Any sufficiently advanced technology is equivalent to magic.
 - ⚡ A good hockey player plays where the puck is. A great hockey player plays where the puck is going to be.
 - ⚡ A true friend is one who overlooks your failures and tolerates your success!
 - 🌛 All difficult things have their origin in that which is easy, and great things in that which is small.
