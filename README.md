@@ -484,6 +484,7 @@
 - 🥁 Sustaining true friendship is a lot more challenging than we give it credit for.
 
 ## T
+- ⌨️ The years teach much which the days never know.
 - ☀️ The right way is not always the popular and easy way. Standing for right when it is unpopular is a true test of moral character.
 - ☀️ To succeed, we must first believe that we can.
 - ⚡ The will to win, the desire to succeed, the urge to reach your full potential... these are the keys that will unlock the door to personal excellence.
