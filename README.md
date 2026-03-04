@@ -253,6 +253,7 @@
 - 📌 If you talk to a man in a language he understands, that goes to his head. If you talk to him in his language, that goes to his heart.
 - 📚 If you would take, you must first give, this is the beginning of intelligence.
 - 📚 In order to win, you must expect to win.
+- 📜 In seed time learn, in harvest teach, in winter enjoy.
 - 📜 It is impossible to escape the impression that people commonly use false standards of measurement — that they seek power, success and wealth for themselves and admire them in others, and that they underestimate what is of true value in life.
 - 📜 It is the nature of the wise to resist pleasures, but the foolish to be a slave to them.
 - 📝 If you are bitter, you are like a dry leaf that you can just squash, and you can get blown away by the wind. There is much more wisdom in forgiveness.
