@@ -103,6 +103,7 @@
 - 🌱 Decision is a risk rooted in the courage of being free.
 - 🌻 Discovery consists of seeing what everybody has seen and thinking what nobody else has thought.
 - 🎁 Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict.
+- 🎈 Do not wait for leaders; do it alone, person to person.
 - 🎎 Don't judge each day by the harvest you reap but by the seeds that you plant.
 - 🎯 Do the difficult things while they are easy and do the great things while they are small. A journey of a thousand miles must begin with a single step.
 - 📝 Dost thou love life? Then do not squander time, for that is the stuff life is made of.
