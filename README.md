@@ -642,6 +642,7 @@
 - 🎸 Wherever a man may happen to turn, whatever a man may undertake, he will always end up by returning to the path which nature has marked out for him.
 - 🎹 When I do good I feel good, when I do bad I feel bad, and that's my religion.
 - 🎹 Wisdom consists of the anticipation of consequences.
+- 🏅 Wisdom begins at the end.
 - 🏆 We come to love not by finding a perfect person, but by learning to see an imperfect person perfectly.
 - 🏆 When you doubt your power, you give power to your doubt.
 - 🏆 Wishing to be friends is quick work, but friendship is a slow ripening fruit.
