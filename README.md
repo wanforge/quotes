@@ -173,6 +173,7 @@
 - 🌛 Happiness is the reward we get for living to the highest right we know.
 - 🌝 Here is one quality that one must possess to win, and that is definiteness of purpose, the knowledge of what one wants, and a burning desire to possess it.
 - 🌞 Happiness is when what you think, what you say, and what you do are in harmony.
+- 🌟 Heedfulness is the path to the Deathless. Heedlessness is the path to death. The heedful die not. The heedless are as if already dead.
 - 🌼 History is written by the victors.
 - 🎆 How far that little candle throws its beams! So shines a good deed in a naughty world.
 - 🎵 He has no enemies, but is intensely disliked by his friends.
