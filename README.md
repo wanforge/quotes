@@ -302,6 +302,7 @@
 - 🧬 It is common sense to take a method and try it. If it fails, admit it frankly and try another. But above all, try something.
 - 🧿 If we all did the things we are capable of doing, we would literally astound ourselves.
 - 🧿 In the sweetness of friendship let there be laughter and sharing of pleasures. For in the dew of little things the heart finds its morning and is refreshed.
+- 🪔 I do not dispute with the world; rather it is the world that disputes with me.
 - 🪕 Independence is happiness.
 
 - 🪘 In the middle of every difficulty lies opportunity.
