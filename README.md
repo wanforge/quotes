@@ -438,6 +438,7 @@
 - 🔔 O, what a tangled web we weave when first we practice to deceive!
 - 🕹️ One's philosophy is not best expressed in words; it is expressed in the choices one makes... and the choices we make are ultimately our responsibility.
 - 🖱️ Our character is what we do when we think no one is looking.
+- 🥁 Our greatness lies not so much in being able to remake the world as being able to remake ourselves.
 - 🧧 One fails forward toward success.
 
 - 🌈 One who gains strength by overcoming obstacles possesses the only strength which can overcome adversity.
