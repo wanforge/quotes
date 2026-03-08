@@ -5,6 +5,7 @@
 - ⚡ A good hockey player plays where the puck is. A great hockey player plays where the puck is going to be.
 - ⚡ A true friend is one who overlooks your failures and tolerates your success!
 - 🌛 All difficult things have their origin in that which is easy, and great things in that which is small.
+- 🌛 All fixed set patterns are incapable of adaptability or pliability. The truth is outside of all fixed patterns.
 - 🌝 A heart well prepared for adversity in bad times hopes, and in good times fears for a change in fortune.
 - 🌠 A good head and a good heart are always a formidable combination.
 - 🌠 A lot of people give up just before theyre about to make it. You know you never know when that next obstacle is going to be the last one.
