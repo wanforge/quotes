@@ -573,6 +573,7 @@
 - 🔔 This is the whole point of technology. It creates an appetite for immortality on the one hand. It threatens universal extinction on the other. Technology is lust removed from nature.
 - 🔔 Those that know, do. Those that understand, teach.
 - 🔖 The only way to tell the truth is to speak with kindness. Only the words of a loving man can be heard.
+- 🔥 The more light you allow within you, the brighter the world you live in will be.
 - 🔥 To support mother and father, to cherish partner and children, and to be engaged in peaceful occupation — this is the greatest blessing.
 - 🔬 There are only two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.
 - 🔭 Take up one idea. Make that one idea your life - think of it, dream of it, live on that idea. Let the brain, muscles, nerves, every part of your body, be full of that idea, and just leave every other idea alone. This is the way to success.
