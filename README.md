@@ -657,6 +657,7 @@
 - 🏮 We are all faced with a series of great opportunities brilliantly disguised as impossible situations.
 - 🏮 When you come to the end of your rope, tie a knot and hang on.
 - 💎 When in doubt, don't.
+- 💡 Wisdom, compassion, and courage are the three universally recognized moral qualities of men.
 - 📍 Whatever we expect with confidence becomes our own self-fulfilling prophecy.
 - 📜 Wise men make more opportunities than they find.
 - 📝 We must embrace pain and burn it as fuel for our journey.
