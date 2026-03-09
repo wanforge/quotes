@@ -283,6 +283,7 @@
 - 🖥️ I can't listen to that much Wagner. I start getting the urge to conquer Poland.
 - 🖥️ If a man watches three football games in a row, he should be declared legally dead.
 - 🖥️ If you surrender to the wind, you can ride it.
+- 🖱️ I want my friend to miss me as long as I miss him.
 - 🛠️ In complete darkness we are all the same, it is only our knowledge and wisdom that separates us, don't let your eyes deceive you.
 - 🛠️ In the sky there are no tracks. Outside there is no recluse. There are no conditioned things that are eternal. There is no instability in the Buddhas.
 - 🥁 If your actions inspire others to dream more, learn more, do more and become more, you are a leader.
