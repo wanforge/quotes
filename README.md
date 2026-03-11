@@ -126,6 +126,7 @@
 - 📌 Each misfortune you encounter will carry in it the seed of tomorrows good luck.
 - 📚 Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you.
 - 🥉 Every man is a damn fool for at least five minutes every day; wisdom consists in not exceeding the limit.
+- 🧧 Each friend represents a world in us, a world not born until they arrive, and it is only by this meeting that a new world is born.
 
 - 🍁 Efficiency is doing things right; effectiveness is doing the right things.
 
