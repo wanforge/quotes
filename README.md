@@ -2,6 +2,7 @@
 
 ## A
 - ⌨️ Any sufficiently advanced technology is equivalent to magic.
+- ☀️ Always remember that you are absolutely unique. Just like everyone else.
 - ⚡ A good hockey player plays where the puck is. A great hockey player plays where the puck is going to be.
 - ⚡ A true friend is one who overlooks your failures and tolerates your success!
 - ⭐ A house divided against itself cannot stand.
