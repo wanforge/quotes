@@ -4,6 +4,7 @@
 - ⌨️ Any sufficiently advanced technology is equivalent to magic.
 - ⚡ A good hockey player plays where the puck is. A great hockey player plays where the puck is going to be.
 - ⚡ A true friend is one who overlooks your failures and tolerates your success!
+- ⭐ A house divided against itself cannot stand.
 - 🌛 All difficult things have their origin in that which is easy, and great things in that which is small.
 - 🌛 All fixed set patterns are incapable of adaptability or pliability. The truth is outside of all fixed patterns.
 - 🌝 A heart well prepared for adversity in bad times hopes, and in good times fears for a change in fortune.
