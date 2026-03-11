@@ -638,6 +638,7 @@
 - 🍃 We do not quit playing because we grow old, we grow old because we quit playing.
 - 🍃 We have committed the Golden Rule to memory; let us now commit it to life.
 - 🎁 Walking with a friend in the dark is better than walking alone in the light.
+- 🎁 We can only learn to love by loving.
 - 🎆 We must not say every mistake is a foolish one.
 - 🎊 We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started.
 - 🎙️ What is necessary to change a person is to change his awareness of himself.
