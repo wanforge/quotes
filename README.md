@@ -14,6 +14,10 @@
 
 - 🍃 Friendships are the family we make - not the one we inherit. I've always been someone to whom friendship, elective affinities, is as important as family.
 
+## I
+
+- 🕹️ It has become appallingly obvious that our technology has exceeded our humanity.
+
 ## L
 
 - 🎯 Life shrinks or expands in proportion to one's courage.
