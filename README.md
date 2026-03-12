@@ -23,6 +23,7 @@
 - 🕹️ It has become appallingly obvious that our technology has exceeded our humanity.
 
 ## L
+- 🌛 Love demands infinitely less than friendship.
 
 - 🎯 Life shrinks or expands in proportion to one's courage.
 
