@@ -21,3 +21,7 @@
 - ⌨️ To improve is to change; to be perfect is to change often.
 
 - 📯 The man of knowledge must be able not only to love his enemies but also to hate his friends.
+
+## W
+
+- 🦾 When you learn, teach. When you get, give.
