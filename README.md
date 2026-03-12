@@ -6,6 +6,7 @@
 - 🎁 Age does not protect you from love. But love, to some extent, protects you from age.
 
 ## H
+- 🧲 Happiness is not in the mere possession of money; it lies in the joy of achievement, in the thrill of creative effort.
 
 - ✨ He who knows that enough is enough will always have enough.
 
