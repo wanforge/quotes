@@ -9,6 +9,10 @@
 
 - ✨ He who knows that enough is enough will always have enough.
 
+## N
+
+- 🏮 Nothing ever goes away until it has taught us what we need to know.
+
 ## T
 - ⌨️ To improve is to change; to be perfect is to change often.
 
