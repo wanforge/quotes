@@ -9,6 +9,10 @@
 
 - 🧲 By believing passionately in something that does not yet exist, we create it.
 
+## D
+
+- 🧿 Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict.
+
 ## F
 - 🖌️ Failure doesn't mean you are a failure it just means you haven't succeeded yet.
 
