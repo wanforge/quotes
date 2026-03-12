@@ -26,6 +26,10 @@
 
 - 🌰 Nature is a mutable cloud which is always and never the same.
 
+## T
+
+- 🎤 The aim of life is self-development. To realize one's nature perfectly - that is what each of us is here for.
+
 ## W
 
 - 🎹 Wisdom is the supreme part of happiness.
