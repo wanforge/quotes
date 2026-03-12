@@ -13,6 +13,10 @@
 
 - 🏮 Nothing ever goes away until it has taught us what we need to know.
 
+## P
+
+- 🌈 People grow through experience if they meet life honestly and courageously. This is how character is built.
+
 ## T
 - ⌨️ To improve is to change; to be perfect is to change often.
 
