@@ -4,3 +4,7 @@
 ## A
 
 - 🍃 Always be a first-rate version of yourself, instead of a second-rate version of somebody else.
+
+## W
+
+- 🎹 Wisdom is the supreme part of happiness.
