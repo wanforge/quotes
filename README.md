@@ -10,6 +10,7 @@
 - 🧲 By believing passionately in something that does not yet exist, we create it.
 
 ## F
+- 🖌️ Failure doesn't mean you are a failure it just means you haven't succeeded yet.
 
 - 🍃 Friendships are the family we make - not the one we inherit. I've always been someone to whom friendship, elective affinities, is as important as family.
 
