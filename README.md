@@ -27,6 +27,7 @@
 - 🎯 Life shrinks or expands in proportion to one's courage.
 
 ## N
+- 🌼 Never apologize for showing feelings. When you do so, you apologize for the truth.
 
 - 🌰 Nature is a mutable cloud which is always and never the same.
 
