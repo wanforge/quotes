@@ -13,6 +13,10 @@
 
 - ⭐ Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are.
 
+## N
+
+- 🌸 Neatness begets order; but from order to taste there is the same difference as from taste to genius, or from love to friendship.
+
 ## O
 
 - 📜 Obstacles are those frightful things you see when you take your eyes off your goal.
