@@ -1,6 +1,10 @@
 # Quotes
 
 
+## F
+
+- 🎯 Feeling and longing are the motive forces behind all human endeavor and human creations.
+
 ## G
 
 - 🍂 Good thoughts are no better than good dreams, unless they be executed.
