@@ -1,6 +1,10 @@
 # Quotes
 
 
+## A
+
+- 🎊 Always do your best. What you plant now, you will harvest later.
+
 ## F
 
 - 🎯 Feeling and longing are the motive forces behind all human endeavor and human creations.
