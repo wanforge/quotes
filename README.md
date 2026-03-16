@@ -5,6 +5,10 @@
 
 - 🎊 Always do your best. What you plant now, you will harvest later.
 
+## D
+
+- ⭐ Don't wait. The time will never be just right.
+
 ## F
 
 - 🎯 Feeling and longing are the motive forces behind all human endeavor and human creations.
