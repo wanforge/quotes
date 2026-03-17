@@ -45,6 +45,10 @@
 
 - 📜 Obstacles are those frightful things you see when you take your eyes off your goal.
 
+## S
+
+- 📯 Sorrow is knowledge, those that know the most must mourn the deepest, the tree of knowledge is not the tree of life.
+
 ## T
 - 🌏 The more light you allow within you, the brighter the world you live in will be.
 - 🌝 Technological progress has merely provided us with more efficient means for going backwards.
