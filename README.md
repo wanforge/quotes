@@ -10,6 +10,10 @@
 
 - ⭐ Don't wait. The time will never be just right.
 
+## E
+
+- 🍂 Everything that happens as it should, and if you observe carefully, you will find this to be so.
+
 ## F
 
 - 🎯 Feeling and longing are the motive forces behind all human endeavor and human creations.
