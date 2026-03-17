@@ -2,6 +2,7 @@
 
 
 ## A
+- 🎶 Autumn is a second spring when every leaf is a flower.
 - 🔔 A friend is what the heart needs all the time.
 
 - 🎊 Always do your best. What you plant now, you will harvest later.
