@@ -34,6 +34,10 @@
 
 - ⭐ Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are.
 
+## M
+
+- 🍀 Mountains cannot be surmounted except by winding paths.
+
 ## N
 - ⌨️ Never say there is nothing beautiful in the world anymore. There is always something to make you wonder in the shape of a tree, the trembling of a leaf.
 - 🌏 No one can make you feel inferior without your consent.
