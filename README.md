@@ -59,6 +59,7 @@
 - 🎎 The more sand that has escaped from the hourglass of our life, the clearer we should see through it.
 - 📜 The aim of life is self-development. To realize one's nature perfectly - that is what each of us is here for.
 - 📢 There are two ways to slide easily through life: to believe everything or to doubt everything; both ways save us from thinking.
+- 🥉 The way you see people is the way you treat them, and the way you treat them is what they become.
 - 🧨 The years teach much which the days never know.
 
 - 🖱️ The greatest discovery of our generation is that human beings can alter their lives by altering their attitudes of mind. As you think, so shall you be.
