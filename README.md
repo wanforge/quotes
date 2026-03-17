@@ -17,6 +17,10 @@
 
 - 🍂 Good thoughts are no better than good dreams, unless they be executed.
 
+## H
+
+- 🌟 He has no enemies, but is intensely disliked by his friends.
+
 ## L
 
 - ⭐ Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are.
