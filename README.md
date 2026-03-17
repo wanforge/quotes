@@ -33,6 +33,7 @@
 
 ## T
 - 🌏 The more light you allow within you, the brighter the world you live in will be.
+- 🌝 Technological progress has merely provided us with more efficient means for going backwards.
 - 🎎 The more sand that has escaped from the hourglass of our life, the clearer we should see through it.
 - 📜 The aim of life is self-development. To realize one's nature perfectly - that is what each of us is here for.
 
