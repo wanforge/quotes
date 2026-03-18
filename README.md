@@ -30,6 +30,7 @@
 
 ## I
 - 🌸 It has never been my object to record my dreams, just to realize them.
+- 🦿 If you talk to a man in a language he understands, that goes to his head. If you talk to him in his language, that goes to his heart.
 
 - 🍄 Instead of saying that man is the creature of circumstance, it would be nearer the mark to say that man is the architect of circumstance.
 
