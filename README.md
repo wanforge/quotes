@@ -29,6 +29,7 @@
 - 🌟 He has no enemies, but is intensely disliked by his friends.
 
 ## I
+- 🌸 It has never been my object to record my dreams, just to realize them.
 
 - 🍄 Instead of saying that man is the creature of circumstance, it would be nearer the mark to say that man is the architect of circumstance.
 
