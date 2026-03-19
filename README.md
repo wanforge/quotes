@@ -51,6 +51,7 @@
 - 🌸 Neatness begets order; but from order to taste there is the same difference as from taste to genius, or from love to friendship.
 
 ## O
+- 🥈 Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road.
 
 - 📜 Obstacles are those frightful things you see when you take your eyes off your goal.
 
