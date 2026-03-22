@@ -63,6 +63,10 @@
 
 - 🏆 Peace is not something you wish for. It's something you make, something you do, something you are, and something you give away.
 
+## R
+
+- 🌸 Reality does not conform to the ideal but confirms it.
+
 ## S
 
 - 📯 Sorrow is knowledge, those that know the most must mourn the deepest, the tree of knowledge is not the tree of life.
