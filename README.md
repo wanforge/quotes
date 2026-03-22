@@ -72,6 +72,7 @@
 - 🎎 The more sand that has escaped from the hourglass of our life, the clearer we should see through it.
 - 🎹 To wear your heart on your sleeve isn't a very good plan; you should wear it inside, where it functions best.
 - 📜 The aim of life is self-development. To realize one's nature perfectly - that is what each of us is here for.
+- 📡 True wisdom is less presuming than folly. The wise man doubteth often, and changeth his mind; the fool is obstinate, and doubteth not; he knoweth all things but his own ignorance.
 - 📢 There are two ways to slide easily through life: to believe everything or to doubt everything; both ways save us from thinking.
 - 🥉 The way you see people is the way you treat them, and the way you treat them is what they become.
 - 🥉 There is not one big cosmic meaning for all, there is only the meaning we each give to our life.
