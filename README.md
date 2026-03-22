@@ -9,6 +9,7 @@
 - 🎊 Always do your best. What you plant now, you will harvest later.
 
 ## D
+- 📱 Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict.
 
 - ⭐ Don't wait. The time will never be just right.
 
