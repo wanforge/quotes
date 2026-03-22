@@ -23,6 +23,7 @@
 - 🎯 Feeling and longing are the motive forces behind all human endeavor and human creations.
 
 ## G
+- 🌞 Genuine love should first be directed at oneself; if we do not love ourselves, how can we love others?
 
 - 🍂 Good thoughts are no better than good dreams, unless they be executed.
 
