@@ -41,6 +41,7 @@
 - 🍄 Instead of saying that man is the creature of circumstance, it would be nearer the mark to say that man is the architect of circumstance.
 
 ## L
+- 🎉 Life is like riding a bicycle. To keep your balance you must keep moving.
 
 - ⭐ Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are.
 
