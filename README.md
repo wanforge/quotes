@@ -9,6 +9,10 @@
 
 - 🎊 Always do your best. What you plant now, you will harvest later.
 
+## C
+
+- 🖱️ Correction does much, but encouragement does more.
+
 ## D
 - 📱 Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict.
 
