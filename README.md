@@ -37,6 +37,7 @@
 - 🌟 He has no enemies, but is intensely disliked by his friends.
 
 ## I
+- 🌈 I never think of the future. It comes soon enough.
 - 🌸 It has never been my object to record my dreams, just to realize them.
 - 🎼 If you want to go east, don't go west.
 - 🏮 I have always found that mercy bears richer fruits than strict justice.
