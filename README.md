@@ -41,6 +41,7 @@
 - 🌸 It has never been my object to record my dreams, just to realize them.
 - 🎼 If you want to go east, don't go west.
 - 🏮 I have always found that mercy bears richer fruits than strict justice.
+- 💧 In seed time learn, in harvest teach, in winter enjoy.
 - 🔭 I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on them unless they act.
 - 🦿 If you talk to a man in a language he understands, that goes to his head. If you talk to him in his language, that goes to his heart.
 
