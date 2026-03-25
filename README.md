@@ -90,6 +90,7 @@
 - 🌰 The free man is he who does not fear to go to the end of his thought.
 - 🌱 The past has no power to stop you from being present now. Only your grievance about the past can do that.
 - 🍃 The world makes way for the man who knows where he is going.
+- 🍃 To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly.
 - 🎎 The more sand that has escaped from the hourglass of our life, the clearer we should see through it.
 - 🎹 To wear your heart on your sleeve isn't a very good plan; you should wear it inside, where it functions best.
 - 📜 The aim of life is self-development. To realize one's nature perfectly - that is what each of us is here for.
