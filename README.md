@@ -102,6 +102,10 @@
 
 - 🖱️ The greatest discovery of our generation is that human beings can alter their lives by altering their attitudes of mind. As you think, so shall you be.
 
+## W
+
+- ⭐ We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre.
+
 ## Y
 
 - 🛠️ Your friend is your needs answered.
