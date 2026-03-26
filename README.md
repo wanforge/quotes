@@ -50,6 +50,7 @@
 
 ## L
 - 🎉 Life is like riding a bicycle. To keep your balance you must keep moving.
+- 🏮 Let go of your attachment to being right, and suddenly your mind is more open. You're able to benefit from the unique viewpoints of others, without being crippled by your own judgement.
 - 📯 Love is like a friendship caught on fire. In the beginning a flame, very pretty, often hot and fierce, but still only light and flickering. As love grows older, our hearts mature and our love becomes as coals, deep-burning and unquenchable.
 
 - ⭐ Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are.
