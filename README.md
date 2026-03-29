@@ -109,5 +109,6 @@
 - ⭐ We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre.
 
 ## Y
+- 🎆 You can't put a limit on anything. The more you dream, the farther you get.
 
 - 🛠️ Your friend is your needs answered.
