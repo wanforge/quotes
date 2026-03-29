@@ -41,6 +41,7 @@
 - ⚡ I never considered a difference of opinion in politics, in religion, in philosophy, as cause for withdrawing from a friend.
 - 🌈 I never think of the future. It comes soon enough.
 - 🌸 It has never been my object to record my dreams, just to realize them.
+- 🎵 It may happen sometimes that a long debate becomes the cause of a longer friendship. Commonly, those who dispute with one another at last agree.
 - 🎼 If you want to go east, don't go west.
 - 🏮 I have always found that mercy bears richer fruits than strict justice.
 - 💧 In seed time learn, in harvest teach, in winter enjoy.
