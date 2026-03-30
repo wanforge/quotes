@@ -34,6 +34,7 @@
 - 🍂 Good thoughts are no better than good dreams, unless they be executed.
 
 ## H
+- 🥁 Happiness does not come from having much, but from being attached to little.
 
 - 🌟 He has no enemies, but is intensely disliked by his friends.
 
