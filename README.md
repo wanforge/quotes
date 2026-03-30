@@ -112,6 +112,7 @@
 - 📢 There are two ways to slide easily through life: to believe everything or to doubt everything; both ways save us from thinking.
 - 🥉 The way you see people is the way you treat them, and the way you treat them is what they become.
 - 🥉 There is not one big cosmic meaning for all, there is only the meaning we each give to our life.
+- 🦾 The cautious seldom err.
 - 🧨 The years teach much which the days never know.
 - 🪘 The word philosophy sounds high-minded, but it simply means the love of wisdom. If you love something, you don't just read about it; you hug it, you mess with it, you play with it, you argue with it.
 
