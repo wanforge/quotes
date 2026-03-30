@@ -8,6 +8,7 @@
 - 🎶 Autumn is a second spring when every leaf is a flower.
 - 🔔 A day of worry is more exhausting than a day of work.
 - 🔔 A friend is what the heart needs all the time.
+- 🪕 Aim for the moon. If you miss, you may hit a star.
 
 - 🎊 Always do your best. What you plant now, you will harvest later.
 
