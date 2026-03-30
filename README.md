@@ -82,6 +82,7 @@
 - 🏆 Peace is not something you wish for. It's something you make, something you do, something you are, and something you give away.
 
 ## R
+- 🌟 Respect should be earned by actions, and not acquired by years.
 
 - 🌸 Reality does not conform to the ideal but confirms it.
 
