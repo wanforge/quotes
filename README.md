@@ -51,6 +51,10 @@
 
 - 🍄 Instead of saying that man is the creature of circumstance, it would be nearer the mark to say that man is the architect of circumstance.
 
+## K
+
+- 🌻 Knowing is not enough; we must apply. Willing is not enough; we must do.
+
 ## L
 - 🍁 Love doesn't make the world go round; love is what makes the ride worthwhile.
 - 🎉 Life is like riding a bicycle. To keep your balance you must keep moving.
