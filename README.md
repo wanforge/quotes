@@ -125,6 +125,7 @@
 
 ## W
 - 🌼 What is not started today is never finished tomorrow.
+- 💎 Who looks outside, dreams, who looks inside, awakes.
 - 🔬 We aim above the mark to hit the mark.
 
 - ⭐ We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre.
