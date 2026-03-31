@@ -123,6 +123,7 @@
 - 🖱️ The greatest discovery of our generation is that human beings can alter their lives by altering their attitudes of mind. As you think, so shall you be.
 
 ## W
+- 🌼 What is not started today is never finished tomorrow.
 - 🔬 We aim above the mark to hit the mark.
 
 - ⭐ We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre.
