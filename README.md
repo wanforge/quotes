@@ -98,6 +98,7 @@
 
 ## T
 - 🌏 The more light you allow within you, the brighter the world you live in will be.
+- 🌏 This is the final test of a gentleman: his respect for those who can be of no possible value to him.
 - 🌝 Technological progress has merely provided us with more efficient means for going backwards.
 - 🌰 The free man is he who does not fear to go to the end of his thought.
 - 🌱 The past has no power to stop you from being present now. Only your grievance about the past can do that.
