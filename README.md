@@ -83,6 +83,7 @@
 - 🌸 Neatness begets order; but from order to taste there is the same difference as from taste to genius, or from love to friendship.
 
 ## O
+- 🍂 Opportunity does not knock, it presents itself when you beat down the door.
 - 🏆 Only I can change my life. No one can do it for me.
 - 🔔 One is not called noble who harms living beings. By not harming living beings one is called noble.
 - 🥈 Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road.
