@@ -118,6 +118,7 @@
 - 🎊 This is the whole point of technology. It creates an appetite for immortality on the one hand. It threatens universal extinction on the other. Technology is lust removed from nature.
 - 🎎 The more sand that has escaped from the hourglass of our life, the clearer we should see through it.
 - 🎹 To wear your heart on your sleeve isn't a very good plan; you should wear it inside, where it functions best.
+- 🎼 Technology made large populations possible; large populations now make technology indispensable.
 - 📜 The aim of life is self-development. To realize one's nature perfectly - that is what each of us is here for.
 - 📡 True wisdom is less presuming than folly. The wise man doubteth often, and changeth his mind; the fool is obstinate, and doubteth not; he knoweth all things but his own ignorance.
 - 📢 There are two ways to slide easily through life: to believe everything or to doubt everything; both ways save us from thinking.
