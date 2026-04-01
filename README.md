@@ -105,6 +105,7 @@
 - 📯 Sorrow is knowledge, those that know the most must mourn the deepest, the tree of knowledge is not the tree of life.
 
 ## T
+- ⚡ There is nothing like returning to a place that remains unchanged to find the ways in which you yourself have altered.
 - 🌏 The more light you allow within you, the brighter the world you live in will be.
 - 🌏 This is the final test of a gentleman: his respect for those who can be of no possible value to him.
 - 🌝 Technological progress has merely provided us with more efficient means for going backwards.
