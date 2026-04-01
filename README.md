@@ -12,6 +12,10 @@
 
 - 🎊 Always do your best. What you plant now, you will harvest later.
 
+## B
+
+- 🎧 By accepting yourself and being fully what you are, your presence can make others happy.
+
 ## C
 
 - 🖱️ Correction does much, but encouragement does more.
