@@ -121,6 +121,7 @@
 - 🍁 The thoughts we choose to think are the tools we use to paint the canvas of our lives.
 - 🍃 The world makes way for the man who knows where he is going.
 - 🍃 To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly.
+- 🍄 Things turn out best for those who make the best of the way things turn out.
 - 🎆 The three great essentials to achieve anything worthwhile are: Hard work, Stick-to-itiveness, and Common sense.
 - 🎉 The great myth of our times is that technology is communication.
 - 🎊 This is the whole point of technology. It creates an appetite for immortality on the one hand. It threatens universal extinction on the other. Technology is lust removed from nature.
