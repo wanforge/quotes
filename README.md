@@ -32,6 +32,7 @@
 - 🍂 Everything that happens as it should, and if you observe carefully, you will find this to be so.
 
 ## F
+- 🍁 First comes thought; then organization of that thought, into ideas and plans; then transformation of those plans into reality. The beginning, as you will observe, is in your imagination.
 
 - 🎯 Feeling and longing are the motive forces behind all human endeavor and human creations.
 
