@@ -13,6 +13,7 @@
 - 🎊 Always do your best. What you plant now, you will harvest later.
 
 ## B
+- 🌛 Belajar adalah harta karun yang akan mengikuti pemiliknya ke mana pun
 
 - 🎧 By accepting yourself and being fully what you are, your presence can make others happy.
 
