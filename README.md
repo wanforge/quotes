@@ -98,6 +98,7 @@
 ## P
 - 🌰 Patience is the companion of wisdom.
 - 🎤 Pitching is the art of instilling fear.
+- 💎 Perjalanan ribuan mil dimulai dengan satu langkah
 
 - 🏆 Peace is not something you wish for. It's something you make, something you do, something you are, and something you give away.
 
