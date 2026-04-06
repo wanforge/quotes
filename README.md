@@ -146,6 +146,7 @@
 ## W
 - 🌰 We know what we are but know not what we may be.
 - 🌼 What is not started today is never finished tomorrow.
+- 🍃 Whatever happens, take responsibility.
 - 💎 Who looks outside, dreams, who looks inside, awakes.
 - 🔬 We aim above the mark to hit the mark.
 
