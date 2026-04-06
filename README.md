@@ -29,6 +29,7 @@
 - ⭐ Don't wait. The time will never be just right.
 
 ## E
+- 🥈 Each day provides its own gifts.
 
 - 🍂 Everything that happens as it should, and if you observe carefully, you will find this to be so.
 
