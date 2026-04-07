@@ -106,6 +106,7 @@
 
 ## R
 - 🌟 Respect should be earned by actions, and not acquired by years.
+- 🎤 Remember always that you not only have the right to be an individual, you have an obligation to be one.
 
 - 🌸 Reality does not conform to the ideal but confirms it.
 
