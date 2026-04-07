@@ -85,6 +85,7 @@
 - ⌨️ Never say there is nothing beautiful in the world anymore. There is always something to make you wonder in the shape of a tree, the trembling of a leaf.
 - 🌏 No one can make you feel inferior without your consent.
 - 🎵 Never interrupt your enemy when he is making a mistake.
+- 💧 No garden is without its weeds.
 
 - 🌸 Neatness begets order; but from order to taste there is the same difference as from taste to genius, or from love to friendship.
 
