@@ -55,6 +55,7 @@
 - 🌸 It has never been my object to record my dreams, just to realize them.
 - 🎉 It is very easy to forgive others their mistakes; it takes more grit to forgive them for having witnessed your own.
 - 🎵 It may happen sometimes that a long debate becomes the cause of a longer friendship. Commonly, those who dispute with one another at last agree.
+- 🎸 If one does not know to which port is sailing, no wind is favorable.
 - 🎼 If you want to go east, don't go west.
 - 🏮 I have always found that mercy bears richer fruits than strict justice.
 - 💧 In seed time learn, in harvest teach, in winter enjoy.
