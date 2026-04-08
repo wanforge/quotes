@@ -4,6 +4,7 @@
 ## A
 - 🌼 America's freedom of religion, and freedom from religion, offers every wisdom tradition an opportunity to address our soul-deep needs: Christianity, Judaism, Islam, Buddhism, Hinduism, secular humanism, agnosticism and atheism among others.
 - 🎁 Anyone who doesn't take truth seriously in small matters cannot be trusted in large ones either.
+- 🎊 And as we let our own light shine, we unconsciously give other people permission to do the same.
 - 🎙️ A dream is your creative vision for your life in the future. You must break out of your current comfort zone and become comfortable with the unfamiliar and the unknown.
 - 🎶 Autumn is a second spring when every leaf is a flower.
 - 🔔 A day of worry is more exhausting than a day of work.
