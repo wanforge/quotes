@@ -97,6 +97,7 @@
 - 🍂 Opportunity does not knock, it presents itself when you beat down the door.
 - 🎆 Our kindness may be the most persuasive argument for that which we believe.
 - 🏆 Only I can change my life. No one can do it for me.
+- 📝 Our greatness lies not so much in being able to remake the world as being able to remake ourselves.
 - 🔔 One is not called noble who harms living beings. By not harming living beings one is called noble.
 - 🥈 Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road.
 - 🦿 One that desires to excel should endeavor in those things that are in themselves most excellent.
