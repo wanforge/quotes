@@ -68,6 +68,7 @@
 - 🍄 Instead of saying that man is the creature of circumstance, it would be nearer the mark to say that man is the architect of circumstance.
 
 ## K
+- 🦋 Knowledge rests not upon truth alone, but upon error also.
 
 - 🌻 Knowing is not enough; we must apply. Willing is not enough; we must do.
 
