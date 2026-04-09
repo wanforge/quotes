@@ -149,6 +149,7 @@
 - 🧨 The greatest healing therapy is friendship and love.
 - 🧨 The years teach much which the days never know.
 - 🧬 The more you care, the stronger you can be.
+- 🪔 There is a magnet in your heart that will attract true friends. That magnet is unselfishness, thinking of others first; when you learn to live for others, they will live for you.
 - 🪘 The word philosophy sounds high-minded, but it simply means the love of wisdom. If you love something, you don't just read about it; you hug it, you mess with it, you play with it, you argue with it.
 
 - 🖱️ The greatest discovery of our generation is that human beings can alter their lives by altering their attitudes of mind. As you think, so shall you be.
