@@ -118,6 +118,7 @@
 - 🌸 Reality does not conform to the ideal but confirms it.
 
 ## S
+- ⭐ Sooner or later, those who win are those who think they can.
 - 🌟 Simply put, you believer that things or people make you unhappy, but this is not accurate. You make yourself unhappy.
 - 🧿 Sometimes being a friend means mastering the art of timing. There is a time for silence. A time to let go and allow people to hurl themselves into their own destiny. And a time to prepare to pick up the pieces when it's all over.
 
