@@ -26,6 +26,7 @@
 ## D
 - 📱 Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict.
 - 🖱️ Divide each difficulty into as many parts as is feasible and necessary to resolve it.
+- 🧧 Don't watch the clock; do what it does. Keep going.
 - 🧲 Discipline is the bridge between goals and accomplishment.
 
 - ⭐ Don't wait. The time will never be just right.
