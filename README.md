@@ -166,6 +166,7 @@
 - 🌼 What is not started today is never finished tomorrow.
 - 🍃 Whatever happens, take responsibility.
 - 💎 Who looks outside, dreams, who looks inside, awakes.
+- 💧 What is past is left behind. The future is yet unreached. Whatever quality is present, clearly see it right there.
 - 🔋 With age comes wisdom and a high sex drive. And the wisdom to enjoy it.
 - 🔬 We aim above the mark to hit the mark.
 
