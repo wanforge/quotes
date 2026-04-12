@@ -43,6 +43,7 @@
 
 ## G
 - 🌞 Genuine love should first be directed at oneself; if we do not love ourselves, how can we love others?
+- 🧲 Get busy living or get busy dying.
 
 - 🍂 Good thoughts are no better than good dreams, unless they be executed.
 
