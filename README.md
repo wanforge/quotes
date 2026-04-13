@@ -167,6 +167,10 @@
 
 - 🖱️ The greatest discovery of our generation is that human beings can alter their lives by altering their attitudes of mind. As you think, so shall you be.
 
+## U
+
+- 📍 Until you make peace with who you are, you will never be content with what you have.
+
 ## W
 - 🌰 We know what we are but know not what we may be.
 - 🌼 What is not started today is never finished tomorrow.
