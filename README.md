@@ -150,6 +150,7 @@
 - 🎹 To wear your heart on your sleeve isn't a very good plan; you should wear it inside, where it functions best.
 - 🎼 Technology made large populations possible; large populations now make technology indispensable.
 - 💡 Take time to deliberate, but when the time for action has arrived, stop thinking and go in.
+- 📌 The foolish man seeks happiness in the distance, the wise grows it under his feet.
 - 📚 The differences between friends cannot but reinforce their friendship.
 - 📜 The aim of life is self-development. To realize one's nature perfectly - that is what each of us is here for.
 - 📡 True wisdom is less presuming than folly. The wise man doubteth often, and changeth his mind; the fool is obstinate, and doubteth not; he knoweth all things but his own ignorance.
