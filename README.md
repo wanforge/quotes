@@ -144,6 +144,7 @@
 - 🍄 Things turn out best for those who make the best of the way things turn out.
 - 🎆 The three great essentials to achieve anything worthwhile are: Hard work, Stick-to-itiveness, and Common sense.
 - 🎉 The great myth of our times is that technology is communication.
+- 🎊 The dream was always running ahead of me. To catch up, to live for a moment in unison with it, that was the miracle.
 - 🎊 This is the whole point of technology. It creates an appetite for immortality on the one hand. It threatens universal extinction on the other. Technology is lust removed from nature.
 - 🎎 The more sand that has escaped from the hourglass of our life, the clearer we should see through it.
 - 🎹 To wear your heart on your sleeve isn't a very good plan; you should wear it inside, where it functions best.
