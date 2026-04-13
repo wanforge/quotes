@@ -135,6 +135,7 @@
 - 🌝 Technological progress has merely provided us with more efficient means for going backwards.
 - 🌰 The free man is he who does not fear to go to the end of his thought.
 - 🌱 The past has no power to stop you from being present now. Only your grievance about the past can do that.
+- 🌻 These days people seek knowledge, not wisdom. Knowledge is of the past; wisdom is of the future.
 - 🌿 There is no greater harm than that of time wasted.
 - 🍁 The thoughts we choose to think are the tools we use to paint the canvas of our lives.
 - 🍃 The world makes way for the man who knows where he is going.
