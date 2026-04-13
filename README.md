@@ -174,6 +174,7 @@
 ## W
 - 🌰 We know what we are but know not what we may be.
 - 🌼 What is not started today is never finished tomorrow.
+- 🍀 We must reach out our hand in friendship and dignity both to those who would befriend us and those who would be our enemy.
 - 🍃 Whatever happens, take responsibility.
 - 💎 Who looks outside, dreams, who looks inside, awakes.
 - 💧 What is past is left behind. The future is yet unreached. Whatever quality is present, clearly see it right there.
