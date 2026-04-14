@@ -92,6 +92,7 @@
 
 ## N
 - ⌨️ Never say there is nothing beautiful in the world anymore. There is always something to make you wonder in the shape of a tree, the trembling of a leaf.
+- 🌈 Nothing in life is so exhilarating as to be shot at without result.
 - 🌏 No one can make you feel inferior without your consent.
 - 🎵 Never interrupt your enemy when he is making a mistake.
 - 💧 No garden is without its weeds.
