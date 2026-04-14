@@ -33,6 +33,7 @@
 
 ## E
 - 📱 Experience is simply the name we give our mistakes.
+- 🔋 Every friendship is different because everyone's personality is different.
 - 🥈 Each day provides its own gifts.
 
 - 🍂 Everything that happens as it should, and if you observe carefully, you will find this to be so.
