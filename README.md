@@ -22,6 +22,7 @@
 - 🎧 By accepting yourself and being fully what you are, your presence can make others happy.
 
 ## C
+- 🎶 Consider that not only do negative thoughts and emotions destroy our experience of peace, but they also undermine our health.
 
 - 🖱️ Correction does much, but encouragement does more.
 
