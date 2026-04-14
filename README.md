@@ -195,5 +195,6 @@
 - 🎆 You can observe a lot just by watching.
 - 🎆 You can't put a limit on anything. The more you dream, the farther you get.
 - 🎎 You can only learn so much from books. You can only learn so much from education. Ultimately, it is the wisdom of God that will carry you through in the toughest situations of life.
+- 🪘 You'll see it when you believe it.
 
 - 🛠️ Your friend is your needs answered.
