@@ -160,6 +160,7 @@
 - 📌 The foolish man seeks happiness in the distance, the wise grows it under his feet.
 - 📚 The differences between friends cannot but reinforce their friendship.
 - 📜 The aim of life is self-development. To realize one's nature perfectly - that is what each of us is here for.
+- 📝 The best way to pay for a lovely moment is to enjoy it.
 - 📡 True wisdom is less presuming than folly. The wise man doubteth often, and changeth his mind; the fool is obstinate, and doubteth not; he knoweth all things but his own ignorance.
 - 📢 There are two ways to slide easily through life: to believe everything or to doubt everything; both ways save us from thinking.
 - 🥇 The wisest men follow their own direction.
