@@ -25,6 +25,7 @@
 - 🖱️ Correction does much, but encouragement does more.
 
 ## D
+- 🎹 Do not give your attention to what others do or fail to do; give it to what you do or fail to do.
 - 📱 Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict.
 - 🖱️ Divide each difficulty into as many parts as is feasible and necessary to resolve it.
 - 🧧 Don't watch the clock; do what it does. Keep going.
