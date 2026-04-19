@@ -190,6 +190,7 @@
 - 🎊 Wisdom, compassion, and courage are the three universally recognized moral qualities of men.
 - 💎 Who looks outside, dreams, who looks inside, awakes.
 - 💧 What is past is left behind. The future is yet unreached. Whatever quality is present, clearly see it right there.
+- 📢 What is new in the world? Nothing. What is old in the world? Nothing. Everything has always been and will always be.
 - 🔋 With age comes wisdom and a high sex drive. And the wisdom to enjoy it.
 - 🔬 We aim above the mark to hit the mark.
 
