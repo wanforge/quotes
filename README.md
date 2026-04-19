@@ -195,6 +195,7 @@
 - ⭐ We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre.
 
 ## Y
+- 🌟 Your vision will become clear only when you look into your heart. Who looks outside, dreams. Who looks inside, awakens.
 - 🎆 You can observe a lot just by watching.
 - 🎆 You can't put a limit on anything. The more you dream, the farther you get.
 - 🎎 You can only learn so much from books. You can only learn so much from education. Ultimately, it is the wisdom of God that will carry you through in the toughest situations of life.
