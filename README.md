@@ -63,6 +63,7 @@
 ## I
 - ⚡ I never considered a difference of opinion in politics, in religion, in philosophy, as cause for withdrawing from a friend.
 - 🌈 I never think of the future. It comes soon enough.
+- 🌝 It takes courage to grow up and become who you really are.
 - 🌸 In rivers, the water that you touch is the last of what has passed and the first of that which comes; so with present time.
 - 🌸 It has never been my object to record my dreams, just to realize them.
 - 🎉 It is very easy to forgive others their mistakes; it takes more grit to forgive them for having witnessed your own.
