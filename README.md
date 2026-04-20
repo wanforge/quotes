@@ -15,6 +15,7 @@
 - 🎊 Always do your best. What you plant now, you will harvest later.
 
 ## B
+- 🌛 Before you put on a frown, make absolutely sure there are no smiles available.
 - 🌛 Belajar adalah harta karun yang akan mengikuti pemiliknya ke mana pun
 - 🔖 Between saying and doing, many a pair of shoes is worn out.
 - 🛠️ Begin at once to live and count each separate day as a separate life.
