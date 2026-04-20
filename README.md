@@ -76,6 +76,7 @@
 - 🔭 I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on them unless they act.
 - 🦿 If you talk to a man in a language he understands, that goes to his head. If you talk to him in his language, that goes to his heart.
 - 🧠 In the depth of winter, I finally learned that there was within me an invincible summer.
+- 🧨 It's important to know that words don't move mountains. Work, exacting work moves mountains.
 - 🧩 If we had no winter, the spring would not be so pleasant; if we did not sometimes taste of adversity, prosperity would not be so welcome.
 - 🪕 It has long been an axiom of mine that the little things are infinitely the most important.
 
