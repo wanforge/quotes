@@ -9,6 +9,7 @@
 - 🎶 Autumn is a second spring when every leaf is a flower.
 - 🔔 A day of worry is more exhausting than a day of work.
 - 🔔 A friend is what the heart needs all the time.
+- 🥈 Always tell the truth. That way, you don't have to remember what you said.
 - 🧧 All things must come to the soul from its roots, from where it is planted.
 - 🪕 Aim for the moon. If you miss, you may hit a star.
 
