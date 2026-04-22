@@ -208,6 +208,7 @@
 - 🎆 You can observe a lot just by watching.
 - 🎆 You can't put a limit on anything. The more you dream, the farther you get.
 - 🎎 You can only learn so much from books. You can only learn so much from education. Ultimately, it is the wisdom of God that will carry you through in the toughest situations of life.
+- 🎼 You may say I'm a dreamer, but I'm not the only one, I hope someday you will join us, and the world will live as one.
 - 🔖 You can't stop the waves, but you can learn to surf.
 - 🪘 You'll see it when you believe it.
 
