@@ -16,6 +16,7 @@
 - 🎊 Always do your best. What you plant now, you will harvest later.
 
 ## B
+- 🌊 Bumi ini cukup untuk tujuh generasi, tetapi tidak untuk tujuh orang serakah
 - 🌛 Before you put on a frown, make absolutely sure there are no smiles available.
 - 🌛 Belajar adalah harta karun yang akan mengikuti pemiliknya ke mana pun
 - 🔖 Between saying and doing, many a pair of shoes is worn out.
