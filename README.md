@@ -103,6 +103,7 @@
 - ⭐ Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are.
 
 ## M
+- 💧 Mimpi tidak akan terwujud dengan sendirinya
 - 🧿 Make it your habit not to be critical about small things.
 
 - 🍀 Mountains cannot be surmounted except by winding paths.
