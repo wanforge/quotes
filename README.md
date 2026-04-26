@@ -87,6 +87,7 @@
 
 ## K
 - 🌰 Kebahagiaan datang ketika kita berhenti mengeluh
+- 📜 Kesederhanaan adalah kecanggihan tertinggi
 - 🦋 Knowledge rests not upon truth alone, but upon error also.
 
 - 🌻 Knowing is not enough; we must apply. Willing is not enough; we must do.
