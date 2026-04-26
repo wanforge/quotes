@@ -86,6 +86,7 @@
 - 🍄 Instead of saying that man is the creature of circumstance, it would be nearer the mark to say that man is the architect of circumstance.
 
 ## K
+- 🌈 Kesempatan tidak datang dua kali, raih saat ini juga
 - 🌰 Kebahagiaan datang ketika kita berhenti mengeluh
 - 📜 Kesederhanaan adalah kecanggihan tertinggi
 - 🦋 Knowledge rests not upon truth alone, but upon error also.
